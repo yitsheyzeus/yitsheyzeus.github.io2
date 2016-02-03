@@ -14,4 +14,8 @@ Isaac's story of being nearly sacrificed as a burnt offering is especially impor
 
 Even fewer people, I'm sure, connect these two stories to the fall of Adam in Eden; and it is this addition that is so fundamental that I am boldly declaring it required to see these three stories as different aspects of the same events in order to have any real understanding of religion whatsoever.
 
+Had you lept to the real hisorical stor of Isaac Newton, oh you thought I forgot, you would be seeing yet another name key that links Adam's fall... and his Apple.. to Isaac.  This introduction to  a hidden language that hides whole multilingual sentinces within names asks you the question: are you "New to n?"
+
+
+
 ##and the Word was with God
