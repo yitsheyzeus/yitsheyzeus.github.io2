@@ -18,4 +18,7 @@ Had you lept to the real hisorical stor of Isaac Newton, oh you thought I forgot
 
 Had you not been "new," you would almost cetainly already know that "what goes up, must come down," and that whole tale compressed as a story in a glyph for one single letter of the English alphabet: the n.  This letter also compreses something else supremely important t the apocalypse: my initials.
 
+#its the "n" of word as we know it.
+Samson.
+
 ##and the Word was with God
