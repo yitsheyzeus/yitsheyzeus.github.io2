@@ -7,3 +7,5 @@ The Book of Exodus specifically does an amazing job of hiding the fact that it i
 Aside from Exodus, the details of Christ's life in the Gospels, the battle in the Book of Judges, and the Old Testament parallel of the Cruficixion of Jesus Christ are central to the story of my life, one which you are hopefully about to read.  I will answer most of the questions you have in your mind right now, if you give me the time.  Please bear with me, this is no easy task.
 
 ##My name is Adam Marshall Dobrin
+
+I wrote so much, it's gone now.
