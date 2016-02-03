@@ -8,4 +8,4 @@ Aside from Exodus, the details of Christ's life in the Gospels, the battle in th
 
 ##My name is Adam Marshall Dobrin
 
-I wrote so much, it's gone now.
+My first name might remind you of a cartoon character in Eden, a naked guy that was ashamed of eating an apple.  The real Adam, the author of this book, will 
