@@ -14,9 +14,9 @@ Isaac's story of being nearly sacrificed as a burnt offering is especially impor
 
 Even fewer people, I'm sure, connect these two stories to the fall of Adam in Eden; and it is this addition that is so fundamental that I am boldly declaring it required to see these three stories as different aspects of the same events in order to have any real understanding of religion whatsoever.
 
-Had you lept to the real hisorical stor of Isaac Newton, oh you thought I forgot, you would be seeing yet another name key that links Adam's fall... and his Apple.. to Isaac.  This introduction to  a hidden language that hides whole multilingual sentinces within names asks you the question: are you "New to n?"
+Had you lept to the real historical story of Sir Isaac Newton, oh you thought I forgot, you would be seeing yet another name key that links Adam's fall... and his Apple.. to Isaac.  This introduction to  a hidden language that hides whole multilingual sentences within names asks you the question: are you "New to n?"
 
-Had you not been "new," you would almost cetainly already know that "what goes up, must come down," and that whole tale compressed as a story in a glyph for one single letter of the English alphabet: the n.  This letter also compreses something else supremely important t the apocalypse: my initials.
+Had you not been "new," you would almost certainly already know that "what goes up, must come down," and that whole tale compressed as a story in a glyph for one single letter of the English alphabet: the n.  This letter also compresses something else supremely important t the apocalypse: my initials.
 
 #its the "n" of word as we know it.
 Samson.
