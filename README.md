@@ -12,4 +12,6 @@ My first name might remind you of a cartoon character in Eden, a naked guy that 
 
 Isaac's story of being nearly sacrificed as a burnt offering is especially important to me, however, as it is this story which unifies the 3 Patriarchal religions under one umbrella of fire and death... through nothing short of a few letters.  It's the first three letters of Isaac which tie him, via names, to Jesus Christ... through the Muslim rendition of his name, Isa.  It's not as superficial as that, but rather the very substantial unification through the meaning of their respective near death experiences.  Isaac's near sacrifice is another take on the story of Jesus' Crucifixion, and it is the fact that not many people make this connection that makes it stand out ever so brightly to me.
 
+Even fewer people, I'm sure, connect these two stories to the fall of Adam in Eden; and it is this addition that is so fundamental that I am boldly declaring it required to see these three stories as different aspects of the same events in order to have any real understanding of religion whatsoever.
+
 ##and the Word was with God
