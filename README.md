@@ -16,6 +16,6 @@ Even fewer people, I'm sure, connect these two stories to the fall of Adam in Ed
 
 Had you lept to the real hisorical stor of Isaac Newton, oh you thought I forgot, you would be seeing yet another name key that links Adam's fall... and his Apple.. to Isaac.  This introduction to  a hidden language that hides whole multilingual sentinces within names asks you the question: are you "New to n?"
 
-
+Had you not been "new," you would almost cetainly already know that "what goes up, must come down," and that whole tale compressed as a story in a glyph for one single letter of the English alphabet: the n.  This letter also compreses something else supremely important t the apocalypse: my initials.
 
 ##and the Word was with God
