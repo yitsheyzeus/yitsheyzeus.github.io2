@@ -8,4 +8,8 @@ Aside from Exodus, the details of Christ's life in the Gospels, the battle in th
 
 ##My name is Adam Marshall Dobrin
 
-My first name might remind you of a cartoon character in Eden, a naked guy that was ashamed of eating an apple.  The real Adam, the author of this book, will 
+My first name might remind you of a cartoon character in Eden, a naked guy that was ashamed of eating an apple.  The real Adam, the author of this book, will be quick to point out that his Biblical counterpart in reality is Isaac.  Whether you stuck with the theme and think I'm talking about the son of Abraham... or went way out in left field and thought of Sir Isaac Newton, we'll you'd be right.  You see in keeping with the earlier stated theme; these are all metaphorical representations of the same character.  
+
+Isaac's story of being nearly sacrificed as a burnt offering is especially important to me, however, as it is this story which unifies the 3 Patriarchal religions under one umbrella of fire and death... through nothing short of a few letters.  
+
+##and the Word was with God
