@@ -19,6 +19,6 @@ Had you lept to the real historical story of Sir Isaac Newton, oh you thought I 
 Had you not been "new," you would almost certainly already know that "what goes up, must come down," and that whole tale compressed as a story in a glyph for one single letter of the English alphabet: the n.  This letter also compresses something else supremely important t the apocalypse: my initials.
 
 #its the "n" of word as we know it.
-Samson.
+R.E.M. sings about feeling fine, but I am anything bu it.  It is for certain the "end of the beginning," and perhaps something worse.  For me, I bring you a story of a war in a court room, one which I am sure links the Trial of Christ to the Book of Judges.  In this war, Samson gains strength, pesumably of character recognition, from his lon hair and its likeness to that of Jesus Christ.  I on the other hand have not had this benefit, despite my sincere likeness; and I fear to be destined the fate of the Son of our Uncle Sam... 
 
 ##and the Word was with God
