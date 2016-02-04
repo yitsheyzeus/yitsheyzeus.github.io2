@@ -1,6 +1,6 @@
 # Summary
 
 * [Introduction](README.md)
-* [Ha'esh](chapter1.md)
 * Behold, the Burning Bush
+* [Ha'esh](chapter1.md)
 
