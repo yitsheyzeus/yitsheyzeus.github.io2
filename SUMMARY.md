@@ -7,5 +7,4 @@
 * [The Light of Heaven](the_light_of_heaven.md)
 * I'm Single
 * Holy Water
-* Holy Grail
 
