@@ -1,5 +1,7 @@
 # The Letter Why
 
+The things in this chapter are what I call "superficial evidence," they are names and words that are probably boring; but yet confirm to me that I have been pre-selected, destined from before my birth to be the messiah.  If you are looking for interesting reading, skip this chapter, if you want to understand why I am so sure that this story has been destiny... read on.
+
 Born on the 8th of December, Yankee Doodle should say; as this is the true birthday of the Messiah... the day of the Feast of the Immaculate Conception.  It is part of a great number of details of my life that are alluded to in religion, in the customs that surround the Bible; which has left so much direct reference to me that its clearly designed to point me out, to the world.
 
 ```
@@ -26,6 +28,6 @@ Just off Sunrise Blvd, and down the street from Sunset Strip; the story of my li
 Christ mas
 navI   dad
 ```
-The hidden connections between languages, specifically Spanish and English through is something that is highlighted repeatedly in what will become obviously an extension of religion.  *The Taming of the Shrew* is an allusion to Spanglishrew, a combination of Spanish, English, and Hebrew that marks a linguistic key to a prescient and divine hand in the construction of all of our language.  It is the Tower of Babel in reverse, proving that the fire of Prometheus is actually language, and through a number of examples which equate the meaning of a number of like-meaning words, God shows that their connections were known about at the time of the writing of the Torah.  
+The hidden connections between languages, specifically Spanish and English through is something that is highlighted repeatedly in what will become obviously an extension of religion.  *The Taming of the Shrew* is an allusion to Span-glish-rew, a combination of Spanish, English, and Hebrew that marks a linguistic key to a prescient and divine hand in the construction of all of our language.  It is the Tower of Babel in reverse, proving that the fire of Prometheus is actually language, and through a number of examples which equate the meaning of a number of like-meaning words, God shows that their connections were known about at the time of the writing of the Torah.  
 
 This language is 
