@@ -21,7 +21,16 @@ This mystery is solved during the inaugural address of George W. Bush, on 1/20/2
 Ecclesiastes 9:11, in its full version delineates each of the planets from Mercury to Uranus.  Each of these lines corresponds to an apocalyptic teaching of Christ.  The first links the Messenger of the Gods to the beginning of the message, and the periodic table element Hg.  Mercury lights the fire of the Bush which is described with the Hebrew word “Ha'esh,” meaning holy fire.  Hidden within this word is another one, the English word for sea... parted with an apostrophe and reflected.  This paradoxical reference to a later event in Exodus, Moses parting the red sea, shows us prescient knowledge of both the story and the English language.
 
 ```
+0  I returned, and saw under the Son,             The Light
+                                               ------------
+1  that the race is not to the swift,             Mercury
+2  nor the battle to the strong,                  Venus
+3  neither yet bread to the wise,                 Earth
+4  nor yet riches to men of understanding,        Mars
+5  nor yet favour to men of skill;                Jupiter
+   but time and chance happeneth to them all.     Saturn & Me
 
+Ecclesiastes 9:11
 ```
 
 The third reference superimposes over Earth, and the quote is “neither yet bread for the wise.”  The light of this statement is the periodic element Xe, for both an Oracle Database and the element responsible for camera flashes.  This is the location of our story of Exodus, and that whole word, taken in reverse speaks volumes.  In addition to “Xe,” the four letter command “sudo” is the Unix equivalent of “run as the God account.”  
