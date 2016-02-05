@@ -47,7 +47,7 @@ Ecclesiastes 9:11
 
 The third reference superimposes over Earth, and the quote is “neither yet bread for the wise.”  The light of this statement is the periodic element Xe, for both an Oracle Database and the element responsible for camera flashes.  This is the location of our story of Exodus, and that whole word, taken in reverse speaks volumes.  In addition to “Xe,” the four letter command “sudo” is the Unix equivalent of “run as the God account.”  
 
-###This phrase, “sudo xe” is the logical equivalent of “Let there be Light.”
+###This phrase, “sudo xe” is the logical equivalent of “Let there be Light.”  Exodus in reverse.
 
 Towards the end Saturn and Uranus... the gods of Time and the Sky correspond to the final two references in Ecc 9:11... but time and chance happeneth to them all.  Uranus clearly links to the element Uranium, and also ties the story of the messiah on the run, the lamb of God (is lam) to the court battle which is referenced in the Book of Judges and the Trial of Jesus Christ.
 
