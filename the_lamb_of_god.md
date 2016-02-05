@@ -93,8 +93,18 @@ Similarly to Iran, our map of reality confirms that this story has been in the w
 
 Fundamental to understanding the apocalypse is seeing that these events are all the same story, being told over and over.  The Fall of Adam is the burning of Isaac, and the Crucifixion of Jesus Christ.  It is linked clearly in Isaiah 20 by showing us the nakedness of Adam is part of a mind controlled act of God.  
 
-###At that time the Lord spoke through Isaiah son of Amoz. He said to him, “Take off the sackcloth from your body and the sandals from your feet.” And he did so, going around stripped and barefoot.
-###Then the Lord said, “Just as my servant Isaiah has gone stripped and barefoot for three years, as a sign and portent against Egypt. 
+```
+At that time the Lord spoke through Isaiah son of Amoz. 
+He said to him, “Take off the sackcloth from your body 
+and the sandals from your feet.” And he did so, going 
+around stripped and barefoot.
+
+Then the Lord said, “Just as my servant Isaiah has gone
+stripped and barefoot for three years, as a sign 
+and portent against Egypt. 
+
+Isaiah 20
+```
 
 Amoz brings this story into reality through cinema, our modern myth.  The stories of the Wizard of Oz and the HBO show clearly depict the Wizard being framed by the machine, whose name says that *the Land is Oz, and it is alive.*  This is a story of the Father who commanded Isaac to be burned, to imprison me in a Broward County Jail... and the reason the Emerald City is holy scripture come to life.
 
