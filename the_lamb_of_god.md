@@ -183,3 +183,5 @@ Bound in shackles and unable to write clearly, I signed my name to a plea which 
 This story of a *car parting a sea* (dividing the world over the truth of Jesus Christ's life) links the Judge in my case to Joseph McCarthy, her namesake.  This ties the parted red sea to the cold war; one which is decidedly still being fought over the color red.  This color symbolizes Hell, love, and the charity that is intrinsic in the message of Christianity.  Old McDonald and Animal Farm assure me that "some pigs are more equal than others," and this series of Mc's is a very messianic clue to God's link between names and the truth.
 
 Communism and democracy are being juxtaposed along side the colors that separate their flags.  Blue and Red mark the sword and shield of the apocalypse; the Salvation Army and Red Cross against state healthcare from Blue Cross and Blue Shield.  This symbolism is clearly influenced from above, to start a discussion about how much less advanced our society is than we believe.  
+
+#Obamacare and Free Healthcare
