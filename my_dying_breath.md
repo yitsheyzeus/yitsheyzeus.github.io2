@@ -22,9 +22,28 @@ Early on, when I was doing drugs to help me communicate with this voice, knowing
 ###Adam is redeemed in the End
 This was one, which was part of my standard repertoire of responses to what must have been his absolute favorite thing to say to me *"this is how you fell."*  I knew that Adam and Christ are one, and are united by more than name, and the like... by the Lion of Eden and of Judah, and by the obviousness of the correlation between the fall and the cross.  I knew that what was happening to me was going to change the world, and it is.  *This is how you fell*, he would say, as I walked around Eden naked, arguing for the miracles that Moses received during his lifetime.  There is a significant sub-story here, about a battle between Father and Son; an ongoing argument where I have always been made the "Devils' Advocate," arguing for the ultimate innocence and worthiness of Humanity.  In my story, because I am a microcosm for humanity (highlighted by the meaning of the name Adam), and I was innocent, so too are you.
 
-My fight was not just against the lack of visible miracles from God, or the fact that I knew we were being harmed and deserved better.  I fought also against a government that is still to this day *hell bent* on hiding my existence.  It is true that I am a disruption, but the disruption that is the second coming is designed to change our world for the better.  My fight against America is highlighted strongly in the Bible and through a very profound idiom that relates to the Fall of Mankind.  My second favorite response to God's warnings, one which I hoped and knew the upper eschelons of American government were listenting to as they hid me from you:
+My fight was not just against the lack of visible miracles from God, or the fact that I knew we were being harmed and deserved better.  I fought also against a government that is still to this day *hell bent* on hiding my existence.  It is true that I am a disruption, but the disruption that is the second coming is designed to change our world for the better.  My fight against America is highlighted strongly in the Bible and through a very profound idiom that relates to the Fall of Mankind.  My second favorite response to God's warnings, one which I hoped and knew the upper echelons of American government were listening to as they hid me from you:
 
 ##Nations fall, not people.
 
 How, in one hour, thy mighty city has fallen.  To me the fact that I was being framed was obvious, Adam never fell; he was pushed.  "You push me, I am I am a Zombie..."   It should become clear that America is being changed, like me.  It is truly the Promised Land, but that means something different than most people think at first glance.  It is the change that is Promised, and divinely wrought.  American freedom has been attacked on purpose, with the intent of ensuring that Human freedom is never against lost.  America is Messiah also, a microcosm for humanity, and an example to the nations.  In our story, these examples are often of what not to do, or of things that must be fixed in order to help create the utopian world that God has promised and we are collectively about to deliver, to ourselves.
+
+```
+Adam and Eve live down the street from ((you)) 
+Babylon is every town... 
+A thousand miles fall from grace, 
+Thank God I ((found)) the Ground. 
+
+-Live, Run to the Water & ((ish))
+```
+
+So, as I fell, constantly reminded that I would be redeemed by the words of songs and the customs of our culture--which I have always held is the true light of Heaven; I was comforted more than anything by knowledge of exactly how I would be saved... no faith required.  So as I part this sea, through nothing more than existing, know that I am convinced that what I am doing is right; and you are better off to be arguing about whether or not I am real... than not to receive the gift that comes from from this "disruption."  With great faith, I walk into the sea, to bring us all to a new "Promised Land," one that is clearly visible to me.  I can see the shore.
+
+#Orson Wells and Wellbutrin
+
+A big part of my ability to see the shore comes from the sight I receive by reading the messages of names.  These names are questions and answers, built to confirm a path through the parted waters.  Orson Wells is a link between Christ and Abraham's proverbial well in the desert of Egypt; here another personification... the well is the messiah.  This book is the water, the light that comes to quench our great thirst for knowledge and freedom, but nore than anything for serenity.
+
+
+
+
 
