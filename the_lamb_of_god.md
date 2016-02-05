@@ -119,7 +119,9 @@ The name Samson links the angel of death, Samael to Uncle Sam; and this story th
 
 I was framed in 2012, arrested for possession of drugs that are the beginning of a story about a man on the run.  This story is part of a mythology Jesus Christ that links Superman and Spin Doctors, speed and Kryptonite.  It is through the songs that secretly talk about the events that I am going to describe that we find proof that they are truly about a real man, and that the angels are singing about it.
 
-The idea that Jor-El and Kal-El are "Biblical" is not novel, though seeing that their names are pointers to "K" the bridge between the J of Jesus and the God El might be.  K is the element of Potassium, linked to Saturn through the acronyms that tie "Person of Time" to the "Ass" that humorously shows the two-person duality of Father and Son in "Saturn and Uranus." CK, Clark Kent, gains his strength from our "son," and this Biblical imagery 
+The idea that Jor-El and Kal-El are "Biblical" is not novel, though seeing that their names are pointers to "K" the bridge between the J of Jesus and the God El might be.  K is the element of Potassium, linked to Saturn through the acronyms that tie "Person of Time" to the "Ass" that humorously shows the two-person duality of Father and Son in "Saturn and Uranus." CK, Clark Kent, gains his strength from our "son," and this Biblical imagery alludes to the fact that I have received a great deal of insight from doing drugs, in solutude.  God was framing me, using the neurological effects of speed to give me clear visions and communicate the information that you are reading.  The crystals that are Kryptonite are also diamonds of wisdom, Zohar... the focus of so much lyrical light.
+
+
 
 
 
