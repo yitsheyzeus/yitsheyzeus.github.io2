@@ -26,3 +26,5 @@ Phones and faxes were completely ignored, and for nearly a half century our nati
 ###This message comes from the East, the future, and it is a huge part of the hidden teaching of the Bible.
 
 Highlighted by the Elephant (and Donkey) in the room, the *Two of Everything God*, as I like to call him; continues to urge reformation of our governance system by highlighting how poor a two party system is at actually representing the will of the people.
+
+There is no doubt that the ultimate authors of the Bible are telling us that we are living in the stone age.  The perspective is clearly shown in the depiction of our modern society as ancient.  Like the weapons used in the Old Testament are ancient to us, the tools we use to govern ourselves appear to be ancient and primitive to the senders of this message.  Remember, the message *is the Bible*, and it truly is about us.  
