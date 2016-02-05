@@ -22,7 +22,7 @@ Ecclesiastes 9:11, in its full version delineates each of the planets from Mercu
 
 ```
 0  I returned, and saw under the Son,             The Stars  & Light
-                                               ------------
+                                                  -------------------
 1  that the race is not to the swift,             Mercury      Hg
 2  nor the battle to the strong,                  Venus        Na
 3  neither yet bread to the wise,                 Earth        Xe
