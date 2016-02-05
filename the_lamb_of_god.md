@@ -115,3 +115,11 @@ Just like many of the protagonists and victims in the Bible are all representati
 
 The name Samson links the angel of death, Samael to Uncle Sam; and this story that is decidedly American.  So sayeth Pro-me-the-US.
 
+# Hidden Messages in Music
+
+I was framed in 2012, arrested for possession of drugs that are the beginning of a story about a man on the run.  This story is part of a mythology Jesus Christ that links Superman and Spin Doctors, speed and Kryptonite.  It is through the songs that secretly talk about the events that I am going to describe that we find proof that they are truly about a real man, and that the angels are singing about it.
+
+The idea that Jor-El and Kal-El are "Biblical" is not novel, though seeing that their names are pointers to "K" the bridge between the J of Jesus and the God El might be.  K is the element of Potassium, linked to Saturn through the acronyms that tie "Person of Time" to the "Ass" that humorously shows the two-person duality of Father and Son in "Saturn and Uranus." CK, Clark Kent, gains his strength from our "son," and this Biblical imagery 
+
+
+
