@@ -45,7 +45,7 @@ Little Cindy-Who, who was played by Taylor Momsen in the Grinch, also might wond
 
 Yes, *who* indeed.
 
-Taylor's repeated references are here to highlight that she is a big part of the apocalypse.  It's nor reckless really, I am sure that she is (an) Eve, created by God, and the proof is in her series of appearances throught her life.  First she's Who-again? and then Little J, and finally today... well she's about as naked as you can get when she's *Going Down* in Eden.
+Taylor's repeated references are here to highlight that she is a big part of the apocalypse.  It's nor reckless really, I am sure that she is (an) Eve, created by God, and the proof is in her series of appearances throughout her life.  First she's Who-again? and then Little J, and finally today... well she's about as naked as you can get when she's *Going Down* in Eden.  She probably never knew she was created to deliver the goods, and waking like this is something similar to how it feels to be me... and have all of religion secretly about your life, before you live it.
 
 As they say, the show must go on... trying to hide this particular Revelation would probably cause a significant amount of darkness; censorship so thick you'd nick name it *CARNIVORE*.  At some point it might have become a defining purpose of the apocalypse to stop the effort to hide it; as that harm could be worse than anything that had come before.  It is probably no mistake that the Egyptian Plague of Darkness comes towards the end.   Right before the *son rises.*
 
