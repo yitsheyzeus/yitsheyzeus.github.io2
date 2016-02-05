@@ -75,8 +75,10 @@ Run boy, be a man; cuz we're too weak to take a stand.
 Taylor Momsen's words came to me as this was happening, the song above was released.  It confirmed to me that what was happening; the run was destiny.  Just before leaving, I blasted *Nothing Left to Lose* on my car radio as I drove.  The lyrics of that song too, show reference to Nero and me.
 
 ```
-Lost between ((Nero)) and ((Darth Vader)), 
-if Jesus Christ and Rock 'n Roll can't save 
+Lost between (( Nero )) and ((Darth Vader)), 
+               El-vis           suicide
+               
+After Jesus Christ and Rock 'n Roll can't save 
 my ((immortal soul))... 
 I've got *Nothing Left to Lose*.  
 
