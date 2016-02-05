@@ -10,7 +10,13 @@ It might belong in "he laughs," for the laughter at CK, but this double entedre,
 #Yetser
 This Hebrew word means "formation," and is very much associated with creation.  It's one of the most profound examples of Spanglish I have ever seen, because it's meaning changes with addition of Latin and Y.  The change in meaning is akin to a transition from "imagined" to "created" with the addition of purpose.  This is coming from a perspective where we are as of yet to be created in reality, to fully exist; and in order to gain that achievement this word implies we must be told our "purpose."
 
-From yet-ser, yet to be; to y et ser
+```
+From yet-ser,      
+     yet to be; to "y et ser:"  
+                  why and "to be."
+```
+Que sera sera.  This also bears a striking relationship to the Shakespearean question "To be, or not to be?" which is highlighted in *I'm Single*.
+
 #Yad
 
 #YisRa-El
