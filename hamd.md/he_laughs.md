@@ -16,6 +16,8 @@ To really tie this to reality, I bring back the light of the word Exodus in reve
 
 ###Larry Ellison, the founder of that company, follows the pattern of the names of Elisha and Elija, telling us that *El is the son.*
 
+This idea that the Father and Son are one should come as no surprise to adherents of Christanity which teaches of the one-ness of the Trinity.  Another religion, that of ancient Egypt also has a concept of unity between Spirit and Mind in the form of the Ba and Ka.  Often spoken about in relation to Horus, the uniter and very well known "son God" it is linguistically attractive to see those concepts united under the "Ha" of Isaac.  Another Egyptian diety, the *sun God* might also be related... his name is Ra.
+
 ###ha'esh
 There are a significant number of religious uses of the prefix Ha, which makes sense as it is the superlative "the" making its modifier "holy."  Earlier we talked about Ha'esh, the word for the Holy Flame of the Burning Bush.  This is the bush that would not burn to ash, and the *ha* here is more than meets the eye.  You see the Hebrew word for fire, "esh" has absolutely nothing to do with ash, and yet this joke seems to imply knowledge of a relationship between the words "ash" and "esh," again indicating knowledge of a language that was yet to exist.
 
