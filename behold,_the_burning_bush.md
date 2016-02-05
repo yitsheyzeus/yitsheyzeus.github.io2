@@ -4,13 +4,26 @@ For thousands of years the Holy Scriptures have been passed down from generation
 
 Using the chapter and verse numbers of three Biblical passages to correspond to two pivotal dates in 2001, this Revelation predicts the 9/11 attack months before it occurred.  This information came to me several years ago, in bits and pieces; with the final key not being revealed until only a few months ago.  Each time a new piece of the puzzle was made clear, the web of co-confirming items made the whole stronger and stronger.  By the time you are finished reading, the significance of the passages will be undeniable.  The quote in Revelation is none other than the herald of Second Coming.
 
-###The mystery of the seven stars that you saw in my right hand and of the seven golden lampstands is this: The seven stars are the angels of the seven churches, and the seven lampstands are the seven churches. -Revelation 1:20
+```
+The mystery of the seven stars that you saw in my right 
+hand and of the seven golden lampstands is this: 
+
+The seven stars are the angels of the seven churches, 
+and the seven lampstands are the seven churches. 
+
+-Revelation 1:20
+```
 
 This mystery is solved during the inaugural address of George W. Bush, on 1/20/2001.  It is an reverse anthropomorphism... a metaphorical representation of the Burning Bush event, witnessed by Moses... already linked to Christ and the fourth dimension in Matthew 3.  The solution is contained within the words that Bush speaks, another two Bible verses, though he immediately attributed them to John Page, who put them together hundreds of years earlier.  The solution is that the seven stars are the first seven planets, logically linked to their mythological deity; the lampstands are corresponding elements of the periodic table.  
 
 ###Bush speaks, “We know the race is not to the swift nor the battle to the strong. Do you not think an angel rides in the whirlwind and directs this storm?" which is a rough combination of Ecclesiastes 9:11 and Revelation 20:1.
 
 Ecclesiastes 9:11, in its full version delineates each of the planets from Mercury to Uranus.  Each of these lines corresponds to an apocalyptic teaching of Christ.  The first links the Messenger of the Gods to the beginning of the message, and the periodic table element Hg.  Mercury lights the fire of the Bush which is described with the Hebrew word “Ha'esh,” meaning holy fire.  Hidden within this word is another one, the English word for sea... parted with an apostrophe and reflected.  This paradoxical reference to a later event in Exodus, Moses parting the red sea, shows us prescient knowledge of both the story and the English language.
+
+```
+
+```
+
 The third reference superimposes over Earth, and the quote is “neither yet bread for the wise.”  The light of this statement is the periodic element Xe, for both an Oracle Database and the element responsible for camera flashes.  This is the location of our story of Exodus, and that whole word, taken in reverse speaks volumes.  In addition to “Xe,” the four letter command “sudo” is the Unix equivalent of “run as the God account.”  
 
 ###This phrase, “sudo xe” is the logical equivalent of “Let there be Light.”
