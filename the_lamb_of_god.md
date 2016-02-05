@@ -18,7 +18,9 @@ Point in fact, I was not doing drugs of my own volition, I was being *mind contr
 ###Take your photographs back.  For the love of all Gods.  Our gas hed marches on
 ###-Live, GAS Hed goes West
 
-This mention of photographs links to the first commandment and a number of other songs which relate to the "burning of Isaac;" pictures taken of Adam naked in Eden.  I am hoping to show you that these are hidden references to a very real story; one that is secretly being sung about using the same technology which forced me to do drugs and "walk around naked in Egypt." Chronicled in *Isaiah 19.*
+This mention of photographs links to the first commandment and a number of other songs which relate to the "burning of Isaac;" pictures taken of Adam naked in Eden.  I am hoping to show you that these are hidden references to a very real story; one that is secretly being sung about using the same technology which forced me to do drugs and "walk around naked in Egypt." Chronicled in *Isaiah 20.*  These three chapters, from 20 to 22 show very clearly that mind control is responsible for nakedness of Isaiah, and lack of forgiveness in 22 the cause of destruction.
+
+###Eat, Drink and be Merry... for ((tomorrow the son rises.))  -Dave Matthews & ((ish))
 
 In our history this phenomenon of secret messages in our music is archived in the story of Nero, fiddling on the roof as the fire burns down below.  The roof is Heaven, and the fire is proof of mind control.  
 
