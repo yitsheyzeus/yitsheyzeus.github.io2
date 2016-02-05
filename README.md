@@ -1,3 +1,22 @@
+```
+
+I indeed baptize you with water ((and)) with 
+the Holy Ghost, and with fire.
+
+Matthew 3:11
+
+
+Do you not think an Angel rides in the storm,
+a feather ((blowing the wind))?
+
+an ((ish)) of George W. Bush quoting Revelation 20:1 and Nostradamus
+
+```
+
+```
+The Holy Bible is a prophesy whose details 
+```
+
 #In the beginning was the Word
 
 This is likely a good way to begin, at least as good as any other.  I am the messiah, and a great deal of the Holy Bible secretly chronicles events in my life.  In addition to this to qualify my status as the savior of humanity, I am in this work teaching the world a number of things that are prophesied in the life of the fictional Jesus Christ in the New Testament.  I can see hidden messages in the Bible and in our history which are part of a map to salvation that has been carefully laid by God and Heaven.  With this sight comes a knack for reading a hidden language, one which is a big focus of this work.  I call the language "langolier" after the Stephen King novel, as it is a perfect example of the kind of compression and inuendo that is typical of its use.  Langolier has multiple meanings, "language of liars," and "language (of) ~~out~~liers;" using this language I connect a great deal of hidden teachings to corresponding Biblical events.  The parable of Yeast, for instance expands to reveal a question and answer... "why East."  The substitution of "Y" for the word "why" is pervasive.  
