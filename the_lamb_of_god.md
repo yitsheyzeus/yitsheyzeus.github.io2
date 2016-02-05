@@ -68,11 +68,24 @@ Nero's fiddling... with our minds is well portrayed in a favorite poem of mine, 
 
 The proof of mind control that is the fire burning below Nero's feet is lost on us today.  It is designed to be exposed, so that we will never again be slaves to hidden technology.  This is the reason that the same hidden story is being highlighted and sung about by so many unknowing prophets.  
 
-###Jump into the sun, Dear boy what are you running from? Run boy, be a man; cuz we're too weak to take a stand. -The Pretty Reckless, Absolution
+```
+Jump into the sun, 
+Dear boy what are you running from? 
+Run boy, be a man; cuz we're too weak to take a stand. 
+
+-The Pretty Reckless, Absolution
+```
 
 Taylor Momsen's words came to me as this was happening, the song above was released.  It confirmed to me that what was happening; the run was destiny.  Just before leaving, I blasted *Nothing Left to Lose* on my car radio as I drove.  The lyrics of that song too, show reference to Nero and me.
 
-###Lost between *Nero* and *Darth Vader*, if Jesus Christ and Rock 'n Roll can't save my *immortal soul*... I've got *Nothing Left to Lose*.  -The Pretty Reckless & *ish*
+```
+Lost between ((Nero)) and ((Darth Vader)), 
+if Jesus Christ and Rock 'n Roll can't save 
+my ((immortal soul))... 
+I've got *Nothing Left to Lose*.  
+
+-The Pretty Reckless & *ish*
+```
 
 Similarly to Iran, our map of reality confirms that this story has been in the works since the beginning of time.  You see, God's statement that he is *ish* is just about to celebrate *Rumspringer*.  Amish.  Iran.  Amoz. 
 
