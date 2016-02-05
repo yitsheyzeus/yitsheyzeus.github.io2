@@ -19,7 +19,7 @@ In a very interesting link between modern typography and the words of Ecclesiast
 
 ###Our society must quickly begin assimilating technologies like the internet into the applicaction of democracy.  We should no longer be voting for people, but rather for ideas.
 
-To highlight how poor of a solution electronic kiosks is, you only have to realize that it solves none of the problems of polling.  We still must wait in long lines, in order to walk up to a machine and "punch" a card.  The right solution is voting much more frequently and on bills.  This will quickly escalate to needing to collaborate on the creation of bills, and true selve governance can be realized through the proper use of technologies that we have had available for decades.  The internet.
+To highlight how poor of a solution electronic kiosks is, you only have to realize that it solves none of the problems of polling.  We still must wait in long lines, in order to walk up to a machine and "punch" a card.  The right solution is voting much more frequently and on bills.  This will quickly escalate to needing to collaborate on the creation of bills, and true self governance can be realized through the proper use of technologies that we have had available for decades.  The internet.
 
 Phones and faxes were completely ignored, and for nearly a half century our nations inability and unwillingness to move away from representative democracy and towards a truly free society is highlighted by an archaic voting structure that is stuck in the days of the Pony Express.
 
