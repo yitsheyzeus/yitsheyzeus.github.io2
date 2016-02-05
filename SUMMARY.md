@@ -5,7 +5,7 @@
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Ha'esh](chapter1.md)
 * [The Lamb of God](the_lamb_of_god.md)
-* [He Laughs](hamd.md/He Laughs)
+* [He Laughs](hamd.md/he_laughs.md)
 * [He Laughsf](he_laughs.md)
    * My Dying Breath
 * My Dying Breath
