@@ -15,7 +15,7 @@ From yet-ser,
      yet to be; to "y et ser:"  
                   why and "to be."
 ```
-Que sera sera.  This also bears a striking relationship to the Shakespearean question "To be, or not to be?" which is highlighted in *I'm Single*.
+Que sera sera.  This also bears a striking relationship to the Shakespearean question "To be, or not to be?" which is highlighted in the chapter titled *I'm Single*.
 
 #Yad
 
