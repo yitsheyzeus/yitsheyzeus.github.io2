@@ -144,4 +144,10 @@ Nearly two decades later Taylor Momsen ties *Two Princes* and Superman to the st
 
 ###More? I'm the son.
 
+```
+Jimmy's in the back with pocket full of high, 
+if you listen close, ((you will understand why.))
+
+The Pretty Reckless, Heaven Knows & ((ish))
+```
 
