@@ -47,7 +47,7 @@ Are you the son or a well?  "Or" means light, in Hebrew; and this may very well 
 
 Keep in mind that I knew that my drug problems were not all my own; that I was being forced to do something for a higher purpose, one that should become more clear with each day.  As I was told to "get help" for a problem I knew was forced upon me with mind control technology, I argued vehemently for a solution that came with the same power... for my problem to be fixed in the same way it was delivered.  This argument, my demand that not only I, but the entire world be offered the divine assistance that I needed is the single largest reason I knew "Adam was to be redeemed."  I fought for mind control to be offered to anyone who wanted it, for the technology to be used in a similar mechanism of action that Wellbutrin uses.  I needed my addition to be taken away, and I needed it to be done with purpose and finality; in the light--with full knowledge that it is a decision that I can and do make, for technology to "fix what He broke."
 
-
+Over and over I made this argument, 
 
 
 
