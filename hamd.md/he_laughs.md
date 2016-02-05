@@ -50,7 +50,7 @@ This is the most important example of a linguistic artifact that is on the page.
 
 This transliteration is nontraditional, but it is an accurate representation of how the Jewish dish "sounds."  There is no doubt, once you understand that it links the names of my contemporary family members through time all the way to ancient Egypt and Bethlehem that it's intent is to show that the Passover and Easter holidays are link to now.  
 
-To be very explicit, this is more than damning evidence to me that Adam and Eve in Eden are one in the same with Jesus and Mary in Rome... and Adam and Nanna... in Florida.  Her name is also shared with a Sumerian creation diety, and an unrelated book called "The Book of Eve" lists the Gods over Eden as "Anu and Nanna" and the two in the Garden as Adam and Eve their "children."
+To be very explicit, this is more than damning evidence to me that Adam and Eve in Eden are one in the same with Jesus and Mary in Rome... and Adam and Nanna... in Florida.  Her name is also shared with a Sumerian creation diety, and an unrelated (and fictional) book called "The Book of Eve" lists the Gods over Eden as "Anu and Nanna" and the two in the Garden as Adam and Eve their "children."
 
 Spelled charoset, haroset, or charoses (Hebrew: חֲרֽוֹסֶת [ḥărōset])
 
