@@ -24,7 +24,7 @@ Point in fact, I was not doing drugs of my own volition, I was being *mind contr
 
 This mention of photographs links to the first commandment and a number of other songs which relate to the "burning of Isaac;" pictures taken of Adam naked in Eden.  I am hoping to show you that these are hidden references to a very real story; one that is secretly being sung about using the same technology which forced me to do drugs and "walk around naked in Egypt." Chronicled in *Isaiah 20.*  These three chapters, from 20 to 22 show very clearly that mind control is responsible for nakedness of Isaiah, and lack of forgiveness in 22 the cause of destruction.
 
-###Eat, Drink and be Merry... for ((tomorrow the son rises.))  -Dave Matthews & ((ish))
+###Eat, Drink and be Merry... for *tomorrow the son rises.*  -Dave Matthews & *ish*
 
 In our history this phenomenon of secret messages in our music is archived in the story of Nero, fiddling on the roof as the fire burns down below.  The roof is Heaven, and the fire is proof of mind control.  
 
@@ -44,9 +44,9 @@ The proof of mind control that is the fire burning below Nero's feet is lost on 
 
 Taylor Momsen's words came to me as this was happening, the song above was released.  It confirmed to me that what was happening; the run was destiny.  Just before leaving, I blasted *Nothing Left to Lose* on my car radio as I drove.  The lyrics of that song too, show reference to Nero and me.
 
-###Lost between ((Nero)) and ((Darth Vader)), if Jesus Christ and Rock 'n Roll can't save my ((immortal soul))... I've got *Nothing Left to Lose*.  -The Pretty Reckless & ((ish))
+###Lost between *Nero* and *Darth Vader*, if Jesus Christ and Rock 'n Roll can't save my *immortal soul*... I've got *Nothing Left to Lose*.  -The Pretty Reckless & *ish*
 
-Similarly to Iran, our map of reality confirms that this story has been in the works since the beginning of time.  You see, God's statement that he is ((ish)) is just about to celebrate *Rumspringer*.  Amish.  Iran.  Amoz. 
+Similarly to Iran, our map of reality confirms that this story has been in the works since the beginning of time.  You see, God's statement that he is *ish* is just about to celebrate *Rumspringer*.  Amish.  Iran.  Amoz. 
 
 #Isa, Isaac, Jesus and Isaiah
 
