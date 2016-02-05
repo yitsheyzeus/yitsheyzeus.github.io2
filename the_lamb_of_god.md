@@ -180,7 +180,7 @@ Bound in shackles and unable to write clearly, I signed my name to a plea which 
 
 #McCarthy and McFly
 
-This story of a car parting a sea links the Judge in my case to Joseph McCarthy, her namesake.  This ties the parted red sea to the cold war; one which is decidedly still being fought over the color red.  This color symbolizes Hell, love, and the charity that is intrinsic in the message of Christianity.
+This story of a car parting a sea links the Judge in my case to Joseph McCarthy, her namesake.  This ties the parted red sea to the cold war; one which is decidedly still being fought over the color red.  This color symbolizes Hell, love, and the charity that is intrinsic in the message of Christianity.  
 
 
 My claims of forced starvation are not an exaggeration, they are part of the obvious problem that has befallen this system.  The "presumed innocent" are seen as a burden on society, when it is the society forcibly incarcerating them that is the problem.  We should be rehabilitating, helping those that have been forced to steal to feed themselves in a broken economy to find useful and meangful jobs.  Instead we starve them, as is clearly highlighted by the dichotomy between the institutional diets of the criminal justice system compared to hospitals.  This starvation is further highlighted in Ecc 9:11; forget "bread for the wise," we are witholding it from the innocent.
