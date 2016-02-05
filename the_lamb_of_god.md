@@ -123,7 +123,7 @@ The idea that Jor-El and Kal-El are "Biblical" is not novel, though seeing that 
 
 ##Dear all of you left behind, you are walking dumb and blind. -Taylor Momsen
 
-More than proving a divine hand secretly influencing musicians, and more 
+More than proving a divine hand secretly influencing musicians, and more than placing me on the cross by 
 
 
 
