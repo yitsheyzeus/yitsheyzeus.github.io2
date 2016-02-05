@@ -28,3 +28,8 @@ Phones and faxes were completely ignored, and for nearly a half century our nati
 Highlighted by the Elephant (and Donkey) in the room, the *Two of Everything God*, as I like to call him; continues to urge reformation of our governance system by highlighting how poor a two party system is at actually representing the will of the people.
 
 There is no doubt that the ultimate authors of the Bible are telling us that we are living in the stone age.  The perspective is clearly shown in the depiction of our modern society as ancient.  Like the weapons used in the Old Testament are ancient to us, the tools we use to govern ourselves appear to be ancient and primitive to the senders of this message.  Remember, the message *is the Bible*, and it truly is about us.  
+
+We should be openly discussion the idea that the legislature is akin to David's sling, and that our representatives should act more like customer service representatives; aiding in communication and the legislation of the ideas of their constituents.  Congress will soon be a thing of the past, an antiquated and rusty machine that should have been thinking about upgrading itself for quite some time.  Instead, it has created more and more problems, rooted in a lack of proper incentivization that is anti-democractic and yet somehow not so illogical... until it is pointed out.
+
+###Corporate Campaign Contributions
+Not even being hid, is the fact that our entire political machine is being financed
