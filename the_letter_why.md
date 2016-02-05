@@ -7,6 +7,8 @@ The band and front singer for Hooty and the Blowfish will deny any involvement i
 
 I see the movie title as a langolier question posed to me, Fish or King?  It uses "er" as a "logical or" whose answer should be self evident.  In this particular case, the answer will one day be obviously contrived; but for lets focus on "hooty."  This series of letters are representative of astrological symbols, and tell a story that ties together a number of Roman dieties.  The first letter, "h" is the symbol for Saturn; and it places first in these words because he is the God of travel.  Thus Saturn has jumped to the very beginning of our linear map of the evolution or progression of the divine character.
 
+
+
 #Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
 
