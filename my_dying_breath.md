@@ -1,4 +1,4 @@
-# The Redemption of Adam
+# The Voice from the Fire
 
 ###I have heard a voice, you're suffering through all this noise. -Taylor Momsen
 
@@ -15,4 +15,12 @@ The relationship between Moses and his parted seas is one of the most well laid 
 
 This message from within our history answers a question that most people probably never ever thought to ask, it is the number of Heavens that will result from our salvation during the period where Moses brings us proof of its existence, and a purpose for ours.  
 
-I have heard a voice, one that speaks directly to me, and has now for a number of years.  Sometimes this "sounds" like my own thoughts, and sometimes it is external; but I have a unique ability to discern messages that are sent to me 
+I have heard a voice, one that speaks directly to me, and has now for a number of years.  Sometimes this "sounds" like my own thoughts, and sometimes it is external; but I have a unique ability to discern messages that are sent to me by God.  It is this unique ability that allows me to see the links between Egyptian lore, American History, and the Bible that link together the symbolism of parted waters... waters which are representative of groups of people.  The multitude.
+
+Early on, when I was doing drugs to help me communicate with this voice, knowing full well that I was Adam; and I was falling in Eden... the voice echoed a number of interesting phrases to me, to remind me of what was going on.
+
+###Adam is redeemed in the End
+This was one, which was part of my standard repertoire of responses to what must have been his absolute favorite thing to say to me *"this is how you fell."*  I knew that Adam and Christ are one, and are united by more than name, and the like... by the Lion of Eden and of Judah, and by the obviousness of the correlation between the fall and the cross.  I knew that what was happening to me was going to change the world, and it is.  *This is how you fell*, he would say, as I walked around Eden naked, arguing for the miracles that Moses received during his lifetime.  There is a significant substory here, about a battle betwen Father and Son; an ongoing argument where I have always been made the "Devils' Advocate," arguing for the ultimate inocense and worthyness of Humanity.  In my story, because I am a microcosm for humanity (highlighted by the meaning of the name Adam), and I was innocent, so too are you.
+
+
+
