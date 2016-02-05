@@ -186,4 +186,4 @@ Communism and democracy are being juxtaposed along side the colors that separate
 
 #Obama and Free Healthcare
 
-Universal Healthcare is more than a good idea, its moral mandate to *heal the sick.*  We need to wake up and see that these things are not suggestions, they are the stuff of actually being civilized instead of in a process of "civilization."  Greed has blinded the
+Universal Healthcare is more than a good idea, its moral mandate to *heal the sick.*  We need to wake up and see that these things are not suggestions, they are the stuff of actually being civilized instead of in a process of "civilization."  Greed has blinded the word the obvious truth; and coming from an insurance background it is easy for me to explain how wrong the Obamacare implentation has been.
