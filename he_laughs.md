@@ -23,7 +23,7 @@ There are a significant number of religious uses of the prefix Ha, which makes s
 This is somewhat obvious when you think about it, the name of the planet Earth in Hebrew is Adamah, which means "ground."  Literally it means to swirl around Adam, and it is a good example of what you might have called Eden, the place where God was searching for Adam.  Here though, it makes more sense in the context of Matthew 2:2, where humanity is searching for the Second Adam... the Christ... all over the planet Earth.  
 
 ###ha'shem
-Wouldn't you guess there's a joke on the way.  The name of God is a sacred secret in Judaism, and it must not be uttered.  The ineffable name is thus replaced with descriptions or abbreviations in order to keep its secret safe.  One such description is Ha'shem which literally means "the name."  This is a direct reference to Eden, and the laughter is once again geared at the obvious foreknowledge of English in the contruction of Hebrew and religion.  There is *no shame* for Adam, who knows he is the savior.
+Wouldn't you guess there's a joke on the way.  The name of God is a sacred secret in Judaism, and it must not be uttered.  The ineffable name is thus replaced with descriptions or abbreviations in order to keep its secret safe.  One such description is Ha'shem which literally means "the name."  This is a direct reference to Eden, and the laughter is once again geared at the obvious foreknowledge of English in the construction of Hebrew and religion.  There is *no shame* for Adam, who knows he is the savior.
 
 ###ha'meforash 
 Yet another rendition of "the name," and now an entire English sentence which also ties in the word "ash."  The savior is laughing about being accused of cursing the Earth.. ashes to ashes, now to esh.
