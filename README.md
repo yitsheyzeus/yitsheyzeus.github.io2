@@ -17,7 +17,9 @@ The Holy Bible is a prophesy whose details chronicle the second coming of Christ
 
 For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of proving the existence of time travel; and a microcosmic look at the "Biblical" relationshpi between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."
 #Purpose
-The purpose of the apocalypse 
+The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a mask for technology and a means to opress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
+
+Designed to expose the existence of advanced technologies, the hidden symbolism in religion act as a guide to lead us through the assimilation 
 
 #In the beginning was the Word
 
