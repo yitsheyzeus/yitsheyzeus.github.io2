@@ -56,5 +56,7 @@ Amoz brings this story into reality through cinema, our modern myth.  The storie
 #The Trial of Jesus Christ
 The run came to an end, and resulted in a very real trial, one which has put the idea of Jesus Christ existing on trial.  I was found to be incompetent to stand trial simply for telling the court that I am the messiah.  Disallowing a religious belief to be used as evidence, protected by the Constitution, resulted in the death of the idea of Jesus Christ.  
 
-Just like many of the protagonists and victims in the Bible are all representative of the Messiah, the fathers are all God.  In the Biblical Promised Land of Joshua we find another story that connects the Old Testament and New.  The battle is the book of Judges is a abstract critique of these same events.  Samson, the son of Uncle Sam here, fighting for his life in a court room is protected by the strength of character recognition.  In this story, it is the long hair of the messiah that now clearly reveals the hidden link between Judges and Jesus.
+Just like many of the protagonists and victims in the Bible are all representative of the Messiah, the fathers are all God.  In the Biblical Promised Land of Joshua we find another story that connects the Old Testament and New.  The battle is the book of Judges is a abstract critique of these same events.  Samson, the son of Uncle Sam here, fighting for his life in a court room is protected by the strength of character recognition.  In this story, it is the long hair of the messiah that now clearly reveals the hidden link between Judges and Jesus.  
+
+The name Samson links the angel of death, Samael to Uncle Sam; and this story that is decidedly American.  So sayeth Pro-me-the-US.
 
