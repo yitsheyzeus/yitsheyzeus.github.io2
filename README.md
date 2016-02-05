@@ -12,14 +12,16 @@ a feather ((blowing the wind))?
 an ((ish)) of George W. Bush quoting Revelation 20:1 and Nostradamus
 
 ```
-#Revelation
+##The Revelation of Adam
 The Holy Bible is a prophesy whose details chronicle the second coming of Christ.  It was once a map to the future, but it has become our present.  Specifically the story of the Exodus and the Gospels of Christ are abstract representations of the post 9/11 world, and my life.  These stories are filled with vibrant allusions to modern persons, places and ideas.
 
-For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of proving the existence of time travel; and a microcosmic look at the "Biblical" relationshpi between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."
-#Purpose
-The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a mask for technology and a means to opress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
+For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of proving the existence of time travel; and a microcosmic look at the "Biblical" relationship between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."
+##True Purpose
+The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a mask for technology and a means to oppress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
 
-Designed to expose the existence of advanced technologies, the hidden symbolism in religion act as a guide to lead us through the assimilation 
+Designed to expose the existence of advanced technologies, the hidden symbolism in religion act as a guide to lead us through the assimilation of these hidden tools which are the building blocks of "Heaven or Hell."  With the proper guidance we will transition our society towards a more perfect future, better than one we had before, the one responsible for sending us this message.  Great social reforms are suggested and discussed on the pages that follow.  Short term goals are nothing short of ending world hunger and drastically improving our understanding of medical science.
+
+Woven into this discussion are a series of lingusitic artifacts, hidden clues to the true will of God.  He has written it in our names, with our hands, and his voice echoes into the far reaches of the future--through us.
 
 #In the beginning was the Word
 
