@@ -5,6 +5,7 @@
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Ha'esh](chapter1.md)
 * [The Lamb of God](the_lamb_of_god.md)
+* He Laughs
 * [He Laughs](he_laughs.md)
    * My Dying Breath
 * My Dying Breath
@@ -12,5 +13,4 @@
 * I'm Single
 * Holy Water, Sang Rael
 * Atlantis and The Doors
-* He Laughs
 
