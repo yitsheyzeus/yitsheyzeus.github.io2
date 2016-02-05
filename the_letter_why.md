@@ -2,6 +2,14 @@
 
 The things in this chapter are what I call "superficial evidence," they are names and words that are probably boring; but yet confirm to me that I have been pre-selected, destined from before my birth to be the messiah.  If you are looking for interesting reading, skip this chapter, if you want to understand why I am so sure that this story has been destiny... read on.
 
+#Y-its-Ha'CK (Isaac)
+It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
+
+#Yeast
+#Yair
+#YisRa-El
+
+
 Born on the 8th of December, Yankee Doodle should say; as this is the true birthday of the Messiah... the day of the Feast of the Immaculate Conception.  It is part of a great number of details of my life that are alluded to in religion, in the customs that surround the Bible; which has left so much direct reference to me that its clearly designed to point me out, to the world.
 
 ```
