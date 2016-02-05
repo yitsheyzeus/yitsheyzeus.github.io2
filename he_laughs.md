@@ -26,6 +26,16 @@ This is somewhat obvious when you think about it, the name of the planet Earth i
 Wouldn't you guess there's a joke on the way.  The name of God is a sacred secret in Judaism, and it must not be uttered.  The ineffable name is thus replaced with descriptions or abbreviations in order to keep its secret safe.  One such description is Ha'shem which literally means "the name."  This is a direct reference to Eden, and the laughter is once again geared at the obvious foreknowledge of English in the construction of Hebrew and religion.  There is *no shame* for Adam, who knows he is the savior.
 
 ###ha'meforash 
-Yet another rendition of "the name," and now an entire English sentence which also ties in the word "ash."  The savior is laughing about being accused of cursing the Earth.. ashes to ashes, now to esh.
+Yet another rendition of "the name," and now an entire English sentence which also ties in the word "ash."  The savior is laughing about being accused of cursing the Earth.. ashes to ashes, now to esh.  Ash could also be a dimiuative reference to the consort of El, whose name is Asherah.
+
+#The Consort of El
+To continue laughing we need to hear a bit about my ex-wife, who is reprentative of Eve, Mary, Asherah... the whole lot (ha!) of females that also double as "all humanity."  Eve can be short for "Everyone," Mary has the Spanish word for sea right in her name, and the Whymar Republic to point out that she also has a reason Y.  Her true name is "Nanna" and that name is the reason why the second Planet (the Goddess of Love has a corresponding element of Na.  This is the beginning of Christ's teaching on salt, and it is a direct cause for the story of Lot's wife (also her) being turned into a pillar of salt.  Adam and Eve are either pillars of creation, or dust.. and she happened to turn and see a city being destroyed; my reading of this story has her "turning around" to come back to me... but only after seeing that the world is being saved.  This chastisement of her character might sound reminiscent of the stories about Mary Magdalene, that's for a reason.  
+
+Another good secret is that she is also the *Woman clothed in the son* from Revelation, this a simple matter of seeing that Venus, the Goddess of Love, has only half a heart (missing the lo of love)... and no sun (negated by the reverse: nus).
+
+###ha'laylot
+We will return to teaching more about salt later, and also to my status as being single.  For now, rest assured that the rumors that I am saving the world just to get girls are highly exaggerated.  Still, there are so many references it might be worth a mention that we probably don't think about whether or not the returning Jesus would be the world's most elligible bachelor in history, or not.  Lot, or the "tool" of God is most definitely a corresponding Christ manifestation.  This word
+
+
 
 ##h ends of the eath
