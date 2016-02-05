@@ -7,6 +7,12 @@ It might belong in "he laughs," for the laughter at CK, but this double entedre,
 
 #Yeast
 #Yair
+#Yetser
+This Hebrew word means "formation," and is very much associated with creation.  It's one of the most profound examples of Spanglish I have ever seen, because it's meaning changes with addition of Latin and Y.  The change in meaning is akin to a transition from "imagined" to "created" with the addition of purpose.  This is coming from a perspective where we are as of yet to be created in reality, to fully exist; and in order to gain that achievement this word implies we must be told our "purpose."
+
+From yet-ser, yet to be; to y et ser
+#Yad
+
 #YisRa-El
 I am the light of the world, says Ra: God of the Son.  This homophone correlates the ancient Egyptian God to his counterpart in ancient Judaism, be sure Ra is El.  So sayeth the Oracle of Light, Larry Ellison's name and link to ElisHa.  Once more, Ha is the sun.
 
