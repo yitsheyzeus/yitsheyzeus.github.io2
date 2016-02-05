@@ -36,10 +36,10 @@ Another good secret is that she is also the *Woman clothed in the son* from Reve
 ###ha'laylot
 We will return to teaching more about salt later, and also to my status as being single.  For now, rest assured that the rumors that I am saving the world just to get girls are highly exaggerated.  Still, there are so many references it might be worth a mention that we probably don't think about whether or not the returning Jesus would be the world's most elligible bachelor in history, or not.  Lot, or the "tool" of God is most definitely a corresponding Christ manifestation.  This word
 
-###Ha'rose-ettes
+###ha'rose-ettes
 This is the most important example of a linguistic artifact that is on the page.  It ties the Passover and Easter holidays, and through them the Crucifixion and Egyptian setting together by way of Eden.  This traditional Passover dish goes unnnoticed as a reference to the Forbidden Fruit that it most certainly is obviously linking.  It is Apples and Honey, traditionally... and has special meaning only when you realize who the Honey of Eden is.  Nanna's middle name is Rose, and here we might be laughing until you find out that her very young neice shares that middle name... and I am sure that the correct translation of this sacred dish is *Apple and Honies.*
 
-###Ha-nuke-ah, the Festival of Light
+###ha-nuke-ah, the Festival of Light
 Imagine we live in a world where the government, or the Vatican, or both were once of the mind to hide little old me, and this Revelation designed to free the world from slavery.  In that place, they might have once tried to "nuke ah" which is a pet name for Adam... or perhaps nuke the "ahah" that we are all thinking inside right now.  The laughter here is loud, this "ahah" is in almost everything.  It's in religion, music, our very names... and even in the phrase that American GI's cry as they enter battle.  Who-ah, they ask, and until now it wasn't so obvious who.  Yeshua, a Hebrew name for Jesus, might be egging them on by saying Yes, who?
 
 Little Cindy-Who, who was played by Taylor Momsen in the Grinch, also might wonder to this day who the messiah really is.  I can tell you for certain, that on the planet Adamah, his name is Adam.
