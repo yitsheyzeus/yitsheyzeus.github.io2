@@ -12,10 +12,12 @@ a feather ((blowing the wind))?
 an ((ish)) of George W. Bush quoting Revelation 20:1 and Nostradamus
 
 ```
+#Revelation
+The Holy Bible is a prophesy whose details chronicle the second coming of Christ.  It was once a map to the future, but it has become our present.  Specifically the story of the Exodus and the Gospels of Christ are abstract representations of the post 9/11 world, and my life.  These stories are filled with vibrant allusions to modern persons, places and ideas.
 
-```
-The Holy Bible is a prophesy whose details 
-```
+For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of proving the existence of time travel; and a microcosmic look at the "Biblical" relationshpi between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."
+#Purpose
+The purpose of the apocalypse 
 
 #In the beginning was the Word
 
