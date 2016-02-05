@@ -18,7 +18,18 @@ This mystery is solved during the inaugural address of George W. Bush, on 1/20/2
 
 ###Bush speaks, “We know the race is not to the swift nor the battle to the strong. Do you not think an angel rides in the whirlwind and directs this storm?" which is a rough combination of Ecclesiastes 9:11 and Revelation 20:1.
 
-In what is without a doubt a visual 
+In what is without a doubt a visual description of the attack on the twin towers, Revelation 20:1 speaks of the Angel of the Lord himself, Death, holding the key to end Hades and that is exactly what the purpose of this work is.
+
+```
+And I saw an angel coming down out of heaven, 
+having the key to the Abyss and holding in his hand a great chain. 
+He seized the dragon, that ancient serpent, who is the devil, 
+or Satan, and bound him for a thousand years. 
+He threw him into the Abyss, and locked and sealed it over him
+
+Revelation 20
+```
+
 Ecclesiastes 9:11, in its full version delineates each of the planets from Mercury to Uranus.  Each of these lines corresponds to an apocalyptic teaching of Christ.  The first links the Messenger of the Gods to the beginning of the message, and the periodic table element Hg.  Mercury lights the fire of the Bush which is described with the Hebrew word “Ha'esh,” meaning holy fire.  Hidden within this word is another one, the English word for sea... parted with an apostrophe and reflected.  This paradoxical reference to a later event in Exodus, Moses parting the red sea, shows us prescient knowledge of both the story and the English language.
 
 ```
