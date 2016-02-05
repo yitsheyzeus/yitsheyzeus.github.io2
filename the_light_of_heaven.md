@@ -37,3 +37,9 @@ Not even being hid, is the fact that our entire political machine is being finan
 This idea of incentivization, and our inability to properly allocate resources is a continuing problem and lesson that spans across time and sectors.  Oil in a land that is missing the fusion hidden in Deuteron-o-my; and longevity in Heaven are all in question in a place where "Out of Time" tells us we still have not realized that transparency is *my will.*
 
 In Heaven and on Earth, the correct allocation of resources, and knowledge of what is real and what is not must be made clear to the entire world.  If we are in fact in Eden; in a simulated reality where oil and land are not scarce, we must know that.  If we are in fact in Heaven, and in the coming new incarnations of that place, we must realize that scarce rsources inside virtual reality are compute power and storage space.  We have answers coming from above.
+
+##DNA, SalesLogix, and Unlimited Power.
+
+##Voting with our minds
+
+##The New Political Party
