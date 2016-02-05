@@ -47,9 +47,12 @@ Are you the son or a well?  "Or" means light, in Hebrew; and this may very well 
 
 Keep in mind that I knew that my drug problems were not all my own; that I was being forced to do something for a higher purpose, one that should become more clear with each day.  As I was told to "get help" for a problem I knew was forced upon me with mind control technology, I argued vehemently for a solution that came with the same power... for my problem to be fixed in the same way it was delivered.  This argument, my demand that not only I, but the entire world be offered the divine assistance that I needed is the single largest reason I knew "Adam was to be redeemed."  I fought for mind control to be offered to anyone who wanted it, for the technology to be used in a similar mechanism of action that Wellbutrin uses.  I needed my addition to be taken away, and I needed it to be done with purpose and finality; in the light--with full knowledge that it is a decision that I can and do make, for technology to "fix what He broke."
 
-Over and over I made this argument, for *assitive tools* to be offered to the whole of humanity; for all of us to be able to receive the things that I needed and wanted.  These tools are part of Saturn's name, and literally the pivotal change that turns the tide and settles the waters.
+Over and over I made this argument, for *assistive tools* to be offered to the whole of humanity; for all of us to be able to receive the things that I needed and wanted.  These tools are part of Saturn's name, and literally the pivotal change that turns the tide and settles the waters.
 
 "Well, but are 'in'.." on the way to Heaven, using the hidden language that named this anti-addiction drug, and walks me from my last name, DOB-R-IN, to the pearly gates.  This thing that I am asking for, an ability to positively change myself is part of the prophesy of solutions that has been delivered by Phillip K. Dick, who holds both my "letter," as his middle initial, and a reference to me, to Osiris, and to the Washington Monument.  I'm a dick, I guess, for being very sure that the series science fictional works that have come to us from above are a blueprint to solve so many of our social problems that I am sure this particular Android dreams furvitily of not "Electric Sheep," but of a society in control of its own actions for the very first time in all of history.
+
+#The Minority Report is "My Dying Breath"
+
 
 
 
