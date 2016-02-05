@@ -43,6 +43,10 @@ So, as I fell, constantly reminded that I would be redeemed by the words of song
 
 A big part of my ability to see the shore comes from the sight I receive by reading the messages of names.  These names are questions and answers, built to confirm a path through the parted waters.  Orson Wells is a link between Christ and Abraham's proverbial well in the desert of Egypt; here another personification... the well is the messiah.  This book is the water, the light that comes to quench our great thirst for knowledge and freedom, but nore than anything for serenity.
 
+Are you the son or a well?  "Or" means light, in Hebrew; and this may very well be the *Day the Earth Stood Still,* waiting for answers with baited breath, wondering if our world will be OK through what is the most talked about and feared day in all of our prophesy.  This day is called the last in Islam, the day the fire spreads, a fire that is also the Eternal Flame, and the promise that God's return will come with fire.  These words, and their recognition as a true message from above is the source of the fire, perhaps spreading as you read.  
+
+Keep in mind that I knew that my drug problems were not all my own; that I was being forced to do something for a higher purpose, one that should become more clear with each day.  As I was told to "get help" for a problem I knew was forced upon me with mind control technology, I argued vehemently for a solution that came with the same power... for my problem to be fixed in the same way it was delivered.  This argument, my demand that not only I, but the entire world be offered the divine assistance that I needed is the single largest reason I knew "Adam was to be redeemed."  I fought for mind control to be offered to anyone who wanted it, for the technology to be used in a similar mechanism of action that Wellbutrin uses.  I needed my addition to be taken away, and I needed it to be done with purpose and finality; in the light--with full knowledge that it is a decision that I can and do make, for technology to "fix what He broke."
+
 
 
 
