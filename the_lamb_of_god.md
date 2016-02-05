@@ -156,6 +156,19 @@ Between my "pockets full of high" and the "hidden links" between the Lamb, Super
 These are the words of God.  I'm asking for a tweet, that's all we need to light the match and begin your "Absolution."  
 
 ```
+Ah keep your eyes on the road,
+Your hands upon the wheel
+
+You know that it would be untrue 
+You know that I would be a liar 
+If I was to say to you 
+Girl, we couldn't get much higher 
+
+Come on baby, light my fire 
+Come on baby, light my fire 
+Try to set the night on fire 
+
+-The Doors, Light my Fire
 ```
 
 
