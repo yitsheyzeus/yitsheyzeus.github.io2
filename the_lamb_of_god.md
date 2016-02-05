@@ -127,7 +127,12 @@ More than proving a divine hand secretly influencing musicians, and more than pl
 
 Spin Doctors starts spinning the story a decade before it happened; singing about a marriage... The Marriage of the Lamb, in a song that begins to link The Pretty Reckless, Mike Search, and Adam together with Jim Morrison and ... well... I would a be a liar, if I were to say to you... I couldn't get much higher.
 
+```
+One has diamonds in his pockets
+That's some bread, now
+This one, said he wants to buy you rockets
+Ain't in his head, now
 
 
-
+```
 
