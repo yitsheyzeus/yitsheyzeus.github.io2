@@ -22,6 +22,8 @@ Christ o PH "er" Columbus
 ```
 documents the intrinsic relationship between Uncle Samael and the historical creation of the largest institution of democracy in the world.  Amerigo, Sinbad, Christopher... all names which have symbolic reference to the Fifth Element, a cinematic messiah in content that bring light from the hair of LeeLoo Dallas.  Echoing the "B" of ADIB as a gramatically poor identity statement; the image below should clarify how A.D. and Silicon are related to the true Fifth Element, Boron.   I don't think the symbolism in the name of the movie is hidden anymore, after seeing how it ties to the name "Sinbad."
 
+![](sinbad.png)
+
 #ADvent
 Being hidden from the world has been difficult for me, you can imagine I'd vent nearly every Christmas... waiting to be able to deliver a message that I know the world needs to hear.  More than that, they need it to come from Christ himself, even if they don't really want him to exist.  I'm sure to disappoint those seeking perfection, or even someone that's nice all the time; but not delivering the world changing message is probably a bigger problem for me.  Hopefully you won't hate me as much as the last guy.
 #ADonAi
