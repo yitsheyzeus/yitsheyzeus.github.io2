@@ -184,4 +184,4 @@ This story of a *car parting a sea* (dividing the world over the truth of Jesus 
 
 Communism and democracy are being juxtaposed along side the colors that separate their flags.  Blue and Red mark the sword and shield of the apocalypse; the Salvation Army and Red Cross against state healthcare from Blue Cross and Blue Shield.  This symbolism is clearly influenced from above, to start a discussion about how much less advanced our society is than we believe.  
 
-#Obamacare and Free Healthcare
+#Obama and Free Healthcare
