@@ -28,11 +28,21 @@ In our history this phenomenon of secret messages in our music is archived in th
 
 ###“You shall not make for yourself a carved image, or any likeness of anything that is in heaven above, or that is in the earth beneath, or that is in the water under the earth. -Exodus 20:4
 
-This mind control was overtly shown to me, I was made to literally walk around like a robot; no small feat.  Forcing me to take drugs was the burning, the altar that nearly killed the Son.  At the same time God is chastising the Egyptians for this enslavement, he taught me how the technology works, and how it can be used for good, to help rectify the atrocities that have befallen our society.  Like I was forced, our streets are flooded with drugs, and our minds manipulated in what is nothing short of an attack on civilization itself.  The crack epidemic, and now the research chemicals flooding through the Postal Service from China shows how this war is being waged on multiple levels.  From the streets, to international drug war, to manipulation from what is the existant Heaven.  
+This mind control was overtly shown to me, I was made to literally walk around like a robot; no small feat.  Forcing me to take drugs was the burning, the altar that nearly killed the Son.  At the same time God is chastising the Egyptians for this enslavement, he taught me how the technology works, and how it can be used for good, to help rectify the atrocities that have befallen our society.  Like I was forced, our streets are flooded with drugs, and our minds manipulated in what is nothing short of an attack on civilization itself.  The crack epidemic, and now the research chemicals flooding through the Postal Service from China shows how this war is being waged on multiple levels.  From the streets, to international drug war, to manipulation from what is the existent Heaven.  
 
 Nero's fiddling... with our minds is well portrayed in a favorite poem of mine, one that I recited in high school.  In *The Touch of the Master's Hand* God is the auctioneer, who changes the worth of the violin he is selling, a metaphor for the salvation of our civilization coming from the Hand of God.
 
 ###He played a melody as pure and sweet as a carolling angel sings.
+
+The proof of mind control that is the fire burning below Nero's feet is lost on us today.  It is designed to be exposed, so that we will never again be slaves to hidden technology.  This is the reason that the same hidden story is being highlighted and sung about by so many unknowing prophets.  
+
+###Jump into the sun, Dear boy what are you running from? Run boy, be a man; cuz we're too weak to take a stand. -The Pretty Reckless, Absolution
+
+Taylor Momsen's words came to me as this was happening, the song above was released.  It confirmed to me that what was happening; the run was destiny.  Just before leaving, I blasted *Nothing Left to Lose* on my car radio as I drove.  The lyrics of that song too, show reference to Nero and me.
+
+###Lost between ((Nero)) and ((Darth Vader)), if Jesus Christ and Rock 'n Roll can't save my ((immortal soul))... I've got *Nothing Left to Lose*.  -The Pretty Reckless & ((ish))
+
+Similarly to Iran, our map of reality confirms that this story has been in the works 
 
 #Isa, Isaac, Jesus and Isaiah
 
