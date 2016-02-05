@@ -43,4 +43,7 @@ Fundamental to understanding the apocalypse is seeing that these events are all 
 
 Amoz brings this story into reality through cinema, our modern myth.  The stories of the Wizard of Oz and the HBO show clearly depict the Wizard being framed by the machine, whose name says that *the Land is Oz, and it is alive.*  This is a story of the Father who commanded Isaac to be burned, to imprison me in a Broward County Jail... and the reason the Emerald City is holy scripture come to life.
 
-##samson
+#The Trial of Jesus Christ
+The run came to an end, and resulted in a very real trial, one which has put the idea of Jesus Christ existing on trial.  I was found to be incompetent to stand trial simply for telling the court that I am the messiah.  Disallowing a religious belief to be used as evidence, protected by the Constitution, resulted in the death of the idea of Jesus Christ.  
+
+Just 
