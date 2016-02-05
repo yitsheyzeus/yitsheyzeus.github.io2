@@ -1,6 +1,6 @@
 # The Letter Why
 
-The things in this chapter are what I call "superficial evidence," they are names and words that are probably boring; but yet confirm to me that I have been pre-selected, destined from before my birth to be the messiah.  If you are looking for interesting reading, skip this chapter, if you want to understand why I am so sure that this story has been destiny... read on.
+The things in this chapter are what I call "superficial evidence," they are names and words that are probably boring; but yet confirm to me that I have been pre-selected, destined from before my birth to be the messiah.  
 
 #Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
