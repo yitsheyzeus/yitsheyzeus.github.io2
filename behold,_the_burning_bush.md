@@ -21,14 +21,14 @@ This mystery is solved during the inaugural address of George W. Bush, on 1/20/2
 Ecclesiastes 9:11, in its full version delineates each of the planets from Mercury to Uranus.  Each of these lines corresponds to an apocalyptic teaching of Christ.  The first links the Messenger of the Gods to the beginning of the message, and the periodic table element Hg.  Mercury lights the fire of the Bush which is described with the Hebrew word “Ha'esh,” meaning holy fire.  Hidden within this word is another one, the English word for sea... parted with an apostrophe and reflected.  This paradoxical reference to a later event in Exodus, Moses parting the red sea, shows us prescient knowledge of both the story and the English language.
 
 ```
-0  I returned, and saw under the Son,             The Light
+0  I returned, and saw under the Son,             The Stars  & Light
                                                ------------
-1  that the race is not to the swift,             Mercury
-2  nor the battle to the strong,                  Venus
-3  neither yet bread to the wise,                 Earth
-4  nor yet riches to men of understanding,        Mars
-5  nor yet favour to men of skill;                Jupiter
-   but time and chance happeneth to them all.     Saturn & Me
+1  that the race is not to the swift,             Mercury      Hg
+2  nor the battle to the strong,                  Venus        Na
+3  neither yet bread to the wise,                 Earth        Xe
+4  nor yet riches to men of understanding,        Mars         Fe
+5  nor yet favour to men of skill;                Jupiter      Si
+   but time and chance happeneth to them all.     Saturn & Me  K & Ur
 
 Ecclesiastes 9:11
 ```
