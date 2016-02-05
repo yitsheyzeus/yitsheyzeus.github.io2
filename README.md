@@ -1,20 +1,11 @@
 ```
-
 I indeed baptize you with water ((and)) with 
 the Holy Ghost, and with fire.
 
 Matthew 3:11
 
-
 ```
 
-```
-Do you not think an Angel rides in the storm,
-a feather ((blowing the wind))?
-
-an ((ish)) of George W. Bush quoting Revelation 20:1 and Nostradamus
-
-```
 ##The Revelation of Adam
 The Holy Bible is a prophesy whose details chronicle the second coming of Christ.  It was once a map to the future, but it has become our present.  Specifically the story of the Exodus and the Gospels of Christ are abstract representations of the post 9/11 world, and my life.  These stories are filled with vibrant allusions to modern persons, places and ideas.
 
@@ -62,3 +53,11 @@ R.E.M. sings about feeling fine, but I am anything but.  In case you are wonderi
 I must be alluding to something with these references to John 1:1, and, believe it--more than a psuedo-superstitious aversion to the word "end." 9's and the letter "I" be damned, I'm going to tell you *the word* is fire.
 
 It's not just in this somewhat well known John verse, it's also in Matthew 3:11, where it heralds the second coming of Jesus Christ.  Moe than anything, this fire begins all the way back in the Book of Exodus.  It's the one witnessed by Moses, the final character in my "Messianic short list."
+
+```
+Do you not think an Angel rides in the storm,
+a feather ((blowing the wind))?
+
+an ((ish)) of George W. Bush quoting Revelation 20:1 and Nostradamus
+
+```
