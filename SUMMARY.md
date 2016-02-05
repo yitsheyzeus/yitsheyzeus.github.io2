@@ -1,6 +1,7 @@
 # Summary
 
 * [Introduction](README.md)
+* The Letter Why
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Ha'esh](chapter1.md)
 * [The Lamb of God](the_lamb_of_god.md)
@@ -8,5 +9,4 @@
 * I'm Single
 * Holy Water, Sang Rael
 * Atlantis and The Doors
-* The Letter Why
 
