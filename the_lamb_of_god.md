@@ -133,6 +133,15 @@ That's some bread, now
 This one, said he wants to buy you rockets
 Ain't in his head, now
 
+Marry him, marry me?
+I'm the one who loves you, baby... can't you see?
 
+Spin Doctors, Two Princes
+Pocket Full of Kryptonite
 ```
+
+Nearly two decades later Taylor Momsen ties *Two Princes* and Superman to the story Jim Morrison began in the 70's; it's a call to her, from God, to Light (this story) Up.  In *Heaven Knows* she sings about Jimmy, maybe hersenf not even knowing that it is Jim Morrison--his name no accident either.  
+
+###More? I'm the son.
+
 
