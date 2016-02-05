@@ -12,3 +12,6 @@ Above all else, the message I see reminds us of the sacredness of our minds.  Wh
 It is a big part of the story of Eden.  I’m not sure if I should welcome you as lions or brothers and sisters... but awareness of creation and purpose is the place that we call “home.”  We are Lions in the Biblical sense... the heart of the word “civilization” is us and “at..” @; the symbol for the world searching for Adam.  
 
 Ka-ur-z-we-il, Is-Ai-ah, Sam-ur-Ai, and AD-on-Ai are hints that Artificial Intelligence is “at hand,” and a big part of our civilization already.   Also important are the warnings that have come to us in movies like The Matrix, WarGames, and the Terminator... and to see that these cautions are coming *Ex Machina*.
+
+#The Race is not to *die Bold*.
+
