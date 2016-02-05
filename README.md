@@ -6,7 +6,6 @@ the Holy Ghost, and with fire.
 Matthew 3:11
 
 
-
 ```
 
 ```
