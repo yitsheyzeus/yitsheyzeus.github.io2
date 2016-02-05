@@ -81,6 +81,8 @@ my ((immortal soul))...
 I've got *Nothing Left to Lose*.  
 
 -The Pretty Reckless & *ish*
+
+Did you write the book of love, and do you have faith in God above?
 ```
 
 Similarly to Iran, our map of reality confirms that this story has been in the works since the beginning of time.  You see, God's statement that he is *ish* is just about to celebrate *Rumspringer*.  Amish.  Iran.  Amoz. 
