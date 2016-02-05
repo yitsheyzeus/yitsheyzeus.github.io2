@@ -10,6 +10,7 @@ This battle between the Messiah and the land of Uncle Sam is the immediate precu
 
 Other translations use the words "he will be very high," and this link to drugs is part of the criticism of our justice system, and social necrosis.  I was very high, yet to be exalted, and very sure that the *speed* that Cake links to the race for the *holy grail* in their song "Going the Distance."  In Judaism the name of Christ is El Elyon which translates to *The God Most High.*  
 
+
 ###Reluctantly crouched at the starting line, Engines pumping and thumping in time. The green light flashes, the flags go up. Churning and burning, they yearn for the cup. 
 ###He's going the distance. He's going for speed.
 ###-Cake, Going the Distance
