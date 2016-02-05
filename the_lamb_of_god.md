@@ -42,7 +42,7 @@ Taylor Momsen's words came to me as this was happening, the song above was relea
 
 ###Lost between ((Nero)) and ((Darth Vader)), if Jesus Christ and Rock 'n Roll can't save my ((immortal soul))... I've got *Nothing Left to Lose*.  -The Pretty Reckless & ((ish))
 
-Similarly to Iran, our map of reality confirms that this story has been in the works 
+Similarly to Iran, our map of reality confirms that this story has been in the works since the beginning of time.  You see, God's statement that he is ((ish)) is just about to celebrate *Rumspringer*.  Amish.  Iran.  Amoz. 
 
 #Isa, Isaac, Jesus and Isaiah
 
