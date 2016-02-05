@@ -178,3 +178,6 @@ Our entire legal system is broken, and it's being highlighted by God as the prim
 
 Bound in shackles and unable to write clearly, I signed my name to a plea which sparked an almost immediate race against this system which secretly was designed to cripple the savior of humanity.  I was forced to run, we Koran--I am told, out of fear of continued incarceration by a system which had already violated my freedom to no end.  These are not problems that are unique to me, or to Florida; they are American problems that surround a system that has become nothing less than the destruction of American freedom, a retribution system Biblically highlight as worse than *an eye for an eye.*
 
+#McCarthy and McFly
+
+
