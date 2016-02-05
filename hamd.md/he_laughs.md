@@ -42,6 +42,7 @@ This word comes from the Jewish prayer associated with Passover's four questions
 Ma nishtanah halailah hazeh mikol haleilot?
 Why is this night different from all other nights?
 ```
+
 ###ha'rose-ettes
 This is the most important example of a linguistic artifact that is on the page.  It ties the Passover and Easter holidays, and through them the Crucifixion and Egyptian setting together by way of Eden.  This traditional Passover dish goes unnnoticed as a reference to the Forbidden Fruit that it most certainly is obviously linking.  It is Apples and Honey, traditionally... and has special meaning his only when you realize who the Honey of Eden is.  Nanna's middle name is Rose, and here we might be laughing until you find out that her very young neice shares that middle name... and I am sure that the correct translation of this sacred "food for thought" is *Apple and Honies.*
 
