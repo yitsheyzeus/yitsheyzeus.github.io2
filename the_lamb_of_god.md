@@ -123,7 +123,9 @@ The idea that Jor-El and Kal-El are "Biblical" is not novel, though seeing that 
 
 ##Dear all of you left behind, you are walking dumb and blind, *blind*. -Taylor Momsen
 
-More than proving a divine hand secretly influencing musicians, and more than placing me on the cross by causing the illegal search in 2012 that made all of this happen; the events that lead up to this run gave me the answers before you.  I was being reflexivly controlled, communication with God used as a carrot on a stick to walk me into the darkness that we call justice in America.  I was arrested by a Lighthouse Point police officer named Mike Search, and his name is no accident.  It is a highlight, to show that I was truly framed; and the ensuing legal battle alluded to in Judges and the NT is all "* 
+More than proving a divine hand secretly influencing musicians, and more than placing me on the cross by causing the illegal search in 2012 that made all of this happen; the events that lead up to this run gave me the answers before you.  I was being reflexivly controlled, communication with God used as a carrot on a stick to walk me into the darkness that we call justice in America.  I was arrested by a Lighthouse Point police officer named Mike Search, and his name is no accident.  It is a highlight, to show that I was truly framed; and the ensuing legal battle alluded to in Judges and the NT is all "*fruit of the poisonous tree*" to tie us back to Eden and idioms.
+
+
 
 
 
