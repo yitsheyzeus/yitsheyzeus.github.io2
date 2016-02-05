@@ -171,4 +171,7 @@ Try to set the night on fire
 -The Doors, Light my Fire
 ```
 
+#In the House of the Rising Son
+My interaction with the police lead me to a court room many years ago; after compiling a significant amount of evidence that should have easily had the case thrown out.  I was pulled over for speeding, but was not; and had GPS records from the police department to prove it.  I was coerced by a broken legal system to take plea bargain to get released from jail in time to spend Christmas with my son.  I was threatened by own counsel, and quite literally controlled to take a deal that I shouldn't have needed.  I was being held without bail, a disgusting practice in Florida which clearly violates the Constitution; and yet is allowed by a court system that has forgotten what freedom really means.
 
+Our entire legal system is broken, 
