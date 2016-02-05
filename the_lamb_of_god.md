@@ -125,7 +125,7 @@ The idea that Jor-El and Kal-El are "Biblical" is not novel, though seeing that 
 
 More than proving a divine hand secretly influencing musicians, and more than placing me on the cross by causing the illegal search in 2012 that made all of this happen; the events that lead up to this run gave me the answers before you.  I was being reflexivly controlled, communication with God used as a carrot on a stick to walk me into the darkness that we call justice in America.  I was arrested by a Lighthouse Point police officer named Mike Search, and his name is no accident.  It is a highlight, to show that I was truly framed; and the ensuing legal battle alluded to in Judges and the NT is all "*fruit of the poisonous tree*" to tie us back to Eden and idioms.
 
-
+Spin Doctors starts spinning the story a decade before it happened; singing about a marriage... The Marriage of the Lamb, in a song that begins to link The Pretty Reckless, Mike Search, and Adam together with Jim Morrison and ... well... I would a be a liar, if I were to say to you... I couldn't get much higher.
 
 
 
