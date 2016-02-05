@@ -49,5 +49,7 @@ Keep in mind that I knew that my drug problems were not all my own; that I was b
 
 Over and over I made this argument, for *assitive tools* to be offered to the whole of humanity; for all of us to be able to receive the things that I needed and wanted.  These tools are part of Saturn's name, and literally the pivotal change that turns the tide and settles the waters.
 
+"Well, but are in.." 
+
 
 
