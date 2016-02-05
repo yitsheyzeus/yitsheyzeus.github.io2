@@ -36,6 +36,11 @@ Another good secret is that she is also the *Woman clothed in the son* from Reve
 ###ha'laylot
 We will return to teaching more about salt later, and also to my status as being single.  For now, rest assured that the rumors that I am saving the world just to get girls are highly exaggerated.  Still, there are so many references it might be worth a mention that we probably don't think about whether or not the returning Jesus would be the world's most elligible bachelor in history, or not.  Lot, or the "tool" of God is most definitely a corresponding Christ manifestation.  This word
 
+Ha'rose-ettes
 
+Ha-nuke-ah
 
 ##h ends of the eath
+The Holy Grail begins by seeing the world in a new light, reframing how we look at scripture and religious ideas in light of a growing body of evidence that what was once small is soon to be large.  The small cup that held a drop of the blood of Christ is actually our entire planet, for reasons that might be obvious.  It is part of the message of saving everyone, and the worth of our little diamond in the rough... that highlights the Earth as the Heart of Heaven.  This was not always so, until we realized that all around us is a gift, a message that is in everything from our idioms to our names, movies, myths, and more.  Miraculously, "from the ends of the Earth" we see the H move from the end of time to the beginning, and the planet becomes "Heart."
+
+This h could be short for Hebrew, which is the purpose of this chapter, to prove that Hebrew has been sent back in time from the future; and that religion documents this fact by highlighting all of these words beginning with h.  The symbol for the Planet Saturn, the God of Time also happens to be an h, with a cross... surely no coincidence.
