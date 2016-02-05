@@ -10,6 +10,9 @@ The word Messiah backwards reveals that "Ha" which is short for Isaac in my pers
 
 The two fish are commonly held to be references to the two prophets, Elisha and Elija, and these two names are very special.  Like Jesus and Jeshurun they are equalities, using the English word "is" this time.  *El* is the proper name of the ancient Hebrew diety, and our equality here tells me that Isaac and El are one.  The Hispanic and English laughs, Ha and Ja are also related by the association of the two names.
 
-What's more, these equalities link the English and Hebrew words for "the" in exactly the same order that Jeshurun equates the two renditions of "is."  Just like SEM, I have acronym for "the," and it is the true purpose of God: *to help everyone.*
+What's more, these equalities link the English and Hebrew words for "the" in exactly the same order that Jeshurun equates the two renditions of "is."  Just like SEM, I have acronym for "the," and it is the true purpose of God: *to help everyone.*  To help us understand these ancient names are showing prescient knowledge of both the English and Hebrew languages thousands of years before that was possible.  Just like a Rosetta stone, not only are we seeing the words, but their meanings are being directly connected to each other.
 
-ellison
+To really tie this to reality, I bring back the light of the word Exodus in reverse.  The name of that book in the Hebrew language translates to "names," and if you recall the Element highlighted, xe, is also the name of Oracle Corporations' database.  
+
+###Larry Ellison, the founder of that company, follows the pattern of the names of Elisha and Elija, telling us that *El is the son.*
+
