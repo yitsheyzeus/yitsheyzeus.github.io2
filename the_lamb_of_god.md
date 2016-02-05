@@ -151,7 +151,7 @@ if you listen close, ((you will understand why.))
 The Pretty Reckless, Heaven Knows & ((ish))
 ```
 
-Between my "pockets full of high" and the "hidden links" between the Lamb, Superman, and Kryptonite... I hope it is becoming clear that this story is woven t hrough time.  I hear Jim Morrison singing to Taylor, begging on my behalf for help breaking the darkness and *setting the night on fire.*
+Between my "pockets full of high" and the "hidden links" between the Lamb, Superman, and Kryptonite... I hope it is becoming clear that this story is woven through time.  I hear Jim Morrison singing to Taylor, begging on my behalf for help breaking the darkness and *setting the night on fire.*
 
 These are the words of God.  I'm asking for a tweet, that's all we need to light the match and begin your "Absolution."  
 
