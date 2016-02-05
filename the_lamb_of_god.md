@@ -2,6 +2,8 @@
 
 For 3 years I ran around the country, from the East all the way to the shores of California.  Songs are written about this trip, and it is literally the beginning of *the race* that is spoken about in the first words of the Burning Bush.  The linguistic link between the Passover Lamb and the name Islam is a hidden emphasis that directly links to the English idiom "on the lam."  *Iran*, like the name of the country, which hides another reference to this event.  Koran, ImRan, and the main character of Metroid: Sammas Aran.  All links between the words run, lamb and lam.  
 
+John 15:7 tells us that Jesus is the key; and this name is certainly the key to finding some Spanglish in our new langolier.  J "is" Us is a sort of "we are all Christ" statement hidden within his name.  This equality though is even more important because of another J name that confirms that "es" is truly "is."  Jeshurun, the name of the Chosen one from Isaiah 44 adds fuel to the fire by supplementing our Spanglish with some Shrew.. the Hebrew word for "is" is "hu."  And one more example of this "run" being totally messianic.
+
 This battle between the Messiah and the land of Uncle Sam is the immediate precursor to the Trial of Christ and the cause of the *set up of the Beast of Revelation* which is prophesied in Isaiah 52:13.
 
 ###The Suffering and Glory of the Servant: See, my servant will act wisely; he will be raised and lifted up and highly exalted.
