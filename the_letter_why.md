@@ -18,4 +18,12 @@ Joan Osbourne
 
 In what is a "joke" that correlates the word "messiah" to an immaculate cleanliness that can only come from the clean slate of new birth; this song joins the growing body of proof that links my life's experience to the angelic song that is surrounding us.  The theme of Joan of Arcadia, that God speaks through people is made even clearer by actually believing it.  It is no mistake that I am "a slob," and the mess of my life is part of the solution to our worlds problems.  Through me, we will be saved.
 
-Just off Sunrise Blvd, and down the street from Sunset Strip; the story of my life 
+DOB-R-IN, my last name is not arbitrarily containing the acronym for date of birth, which clearly links 12/8/1980 to the word "messiah."  It is the first of many names that will show a divine hand that has pre-written our world and marked its influence and existence.  My mother's maiden name, Gerson, fills another gap; showing that in my names we have the hidden "sky" and the hidden "son."  Dobrin is shortened from Dobrinsky, and these two words are references to Uranus, God of the Sky, and Christ.
+
+Just off Sunrise Blvd, and down the street from Sunset Strip; the story of my life quickly moved from perfect to a mess.  I was born in family whose given names are direct pointers to Eden.  Adam, Melissa Eve, and Seth make up a part of the true "First Family," a trinity whose initials make up the word "sea," an early clue that our story will be likening these microcosmic abstractions in Eden to the ideas of family and the multitude once we make it through the book all the way to Revelation.  The sea is people, and when we get all the way to Christmas the multitude family.
+
+```
+Christ mas
+navI   dad
+```
+The hidden connections between languages, specifically Spanish and English through 
