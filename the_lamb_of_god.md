@@ -121,7 +121,9 @@ I was framed in 2012, arrested for possession of drugs that are the beginning of
 
 The idea that Jor-El and Kal-El are "Biblical" is not novel, though seeing that their names are pointers to "K" the bridge between the J of Jesus and the God El might be.  K is the element of Potassium, linked to Saturn through the acronyms that tie "Person of Time" to the "Ass" that humorously shows the two-person duality of Father and Son in "Saturn and Uranus." CK, Clark Kent, gains his strength from our "son," and this Biblical imagery alludes to the fact that I have received a great deal of insight from doing drugs, in solutude.  God was framing me, using the neurological effects of speed to give me clear visions and communicate the information that you are reading.  The crystals that are Kryptonite are also diamonds of wisdom, Zohar... the focus of so much lyrical light.  Through my struggle, I was placed in a position to comment on the social structure that we have surrounding drugs, addiction and rehabilitation.  More importantly on our justice system, and it is such a huge focus of religion that we have story after story to remind us.  Jeremiah was jailed, Jesus tried, Joseph enslaved... all allusions to what you are about to read about.
 
-##
+##Dear all of you left behind, you are walking dumb and blind. -Taylor Momsen
+
+More than proving a divine hand secretly influencing musicians, and more 
 
 
 
