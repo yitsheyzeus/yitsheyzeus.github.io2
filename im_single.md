@@ -9,14 +9,14 @@ A sailor like Sinbad, Christopher Columbus sailed the ocean blue to bring democr
 
 ```
 Christ o PH "er" Columbus
-       f ua
-         pp
-         rp
-         si
-         un
-         ee
-          s
-          s
+       f ua  mo
+         pp  eo
+         rp  rm
+         si  g
+         un  e 
+         ee  n
+          s  c
+          s  y
 
 (How's that for the Matrix for you?)
 ```
