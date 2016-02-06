@@ -15,3 +15,6 @@ This is "the word" of John 1:1.  The fire referenced in Matthew 3:11; and it tru
 ###I baptize you with water for repentance. But after me comes one who is more powerful than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and *fire*. -Matthew 3:11
 
 Following the link attached will open your eyes; it is a free book, a rough draft that includes hundreds of similar examples of words that simply cannot exist.  It is their impossibility that is the proof--a paradox that shows that God's hand is all of the creation of Hebrew... and then English, Spanish... all language.  This is the theft of fire, the proof that we are truly created.
+
+#The Son of Man
+When I first began looking into Biblica prophesy.
