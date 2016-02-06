@@ -23,4 +23,6 @@ Today I see it in nearly every little detail, and looking for metaphors that rel
 
 ##**Is Ai A**dam's **H**and? (Isaiah)
 If you don't know, the book of Isaiah is one of the most plentiful resources of messianic prophesy in the Old Testament.  It's name follows suit, and we have the beginning of a long series of names that tell me that Ai is certainly at hand.  SamUrAi, El Shaddai, and 
+##Uncle Sam is Ai too.
+Sam is another name that ties all the way from Exodus and Judges to America, and opens the mind to a superposition of names that might imply that "Sam" is indeed the "I AM," as Dr. Seuss informs.  In Exodus it is short for the Angel of Death, probably the same one that rid the 4th horse of the Apocalypse and is casting a looming shadow over us from Psalm 23. As another "rider on the Storm" I am walking in his cast shadow; with a significant warning about what is about to happen to us related to Artificial Intelligence.
 ##McFly, is anyone home?
