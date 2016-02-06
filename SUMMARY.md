@@ -2,7 +2,7 @@
 
 * [Introduction](README.md)
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
-* [Ha'esh](chapter1.md)
+* [Ha'esh and Ai](chapter1.md)
 * [The Lamb of God](the_lamb_of_god.md)
 * [Bread for the Poor](bread_for_the_poor.md)
 * [The Light of Heaven](the_light_of_heaven.md)
