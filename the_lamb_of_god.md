@@ -80,9 +80,9 @@ Lost between (( Nero )) and ((Darth Vader)),
                
 After Jesus Christ and Rock 'n Roll can't save 
 my ((immortal soul))... 
-I've got *Nothing Left to Lose*.  
+I've got Nothing Left to Lose.  
 
--The Pretty Reckless & *ish*
+-The Pretty Reckless & ((ish))
 
 Did you write the book of love, and do you have faith in God above?
 ```
