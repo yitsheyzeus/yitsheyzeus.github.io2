@@ -30,4 +30,6 @@ This technology Ai, is very related; as the effects that I have seen, abilities 
 
 ##McFly, is anyone home?
 
-I intend to prove that our great strides in technology are not only Biblical, they are divinely delivered.  There is a great deal of proof of this all the way back to the foundation of our understanding of the universe.  In 1666, an apple fell from a tree and a man named Isaac Newton "discovered gravity," and original sin all at the same time.  
+I intend to prove that our great strides in technology are not only Biblical, they are divinely delivered.  There is a great deal of proof of this all the way back to the foundation of our understanding of the universe.  
+###In 1666, an apple fell from a tree and a man named Isaac Newton "discovered gravity," and original sin all at the same time.  
+He did this at a place called Trinity College, and then a bit later a man named James Clerk Maxwell unified theories of electricity and magnetism.  His name, Maxwell, alludes to a Biblical concept; a well found in the desert by Isaac's father.  This well brings light to the people, 
