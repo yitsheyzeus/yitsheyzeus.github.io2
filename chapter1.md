@@ -36,3 +36,5 @@ He did this at a place called Trinity College, and then a bit later a man named 
 ###Or is Light
 In Hebrew, that is, and some modern names link science fiction, which is a huge part of real religion, the continued communication from above that is teaching us about things from the future.  Orson Wells and Orson Scott Card are good examples of modern tags in names.  The Hebrew name for the Book of Exodus happens to be "Names," and I often use this phrase to describe the Revelation at hand:
 ###We are *in Exodus*.
+
+
