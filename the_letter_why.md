@@ -18,6 +18,12 @@ Much like the Fluxx Capacitor, I fell off a toilet (not really) and drew this pi
 
 ###It is no mistake that El and the cross are unified across HOLY HOOTY and HOT.  
 
+##The Lord of Hosts
+
+##The Sign of the Pretty Reckless
+
+##My Birthday
+
 *I was neither hot nor cold, but cool; and now I am forever lit.* -Adam Marshall Dobrin
 
 
