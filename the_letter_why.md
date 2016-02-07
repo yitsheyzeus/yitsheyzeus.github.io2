@@ -42,7 +42,7 @@ God's message is that there will be no Hell, and that time travel should only be
 ##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
 
-This is one huge reference to modern computing, in the name of the messiah I associate momst with. Ha, I wonder why?
+This is one huge reference to modern computing, in the name of the messiah I associate momst with. *Ha,* I wonder why?
 ##Yeast
 
 ##Yair
