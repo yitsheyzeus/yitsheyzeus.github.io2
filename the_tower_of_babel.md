@@ -78,4 +78,14 @@ the Hebrew Bible.
 
 I provide an incarnate reason why his Covenant-interaction is related to Isaac's sacrifice, in which he is laughing (that's what Isaac means in Hebrew by the way, "he laughs") at surviving the Crucifixion which the ancient parable of Genesis 22 is a clear reference to.
 
-
+```
+AKEDAH (ʿAqedah; Heb. הָדֵקֲע, lit. "binding (of Isaac)"), the Pentateucha
+l narrative (Gen. 22:1–19) describing God's command to *Abraham to offer
+*Isaac , the son of his old age, as a sacrifice. Obedient to the command,
+Abraham takes Isaac to the place of sacrifice and binds him (va-ya'akod,
+Gen. 22:9, a word found nowhere else in the Bible in the active,
+conjugative form) on the altar. The angel of the Lord then bids Abraham to
+stay his hand and a ram is offered in Isaac's stead. The Akedah became in
+Jewish thought the supreme example of self-sacrifice in obedience to God's
+will and the symbol of Jewish martyrdom throughout the ages.
+```
