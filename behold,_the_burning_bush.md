@@ -6,7 +6,9 @@ For thousands of years the Holy Scriptures have been passed down from generation
 ##The Messiah of Sea to Shining Sea
 There are other connections between Jesus Christ and Moses, which highlight a "problem" associated with the Tribulation.  *The "PH" problem.*  That's not a sexist remark, or about your pool; it's about ***The Pursuit of Happiness***.  Both Jesus Christ and Moses had "enemies," ones whose names began with "PH."  If you did not just say "I see," you probably need me to point out that the Pharoah and Pharisees names are nearly identical.
 
-This is the Tribulation, or at least my explanation of what is going on; there is a hidden war of mind control being waged, one which has made average people--doctors, lawyers, writers... the "scribes" of today into an enemy.  In some ways, we are all enemies of ourselves, forward progress, and change... something that is a big part of what I am doing here.
+This is the Tribulation, or at least my explanation of what is going on; there is a hidden war of mind control being waged, one which has made average people--doctors, lawyers, writers... the "scribes" of today into an enemy.  In some ways, we are all enemies of ourselves, forward progress, and change... something that is a big part of what I am doing here.  
+
+Placing the idea of a centralized controller, something like God, over the people is basically how I see his description of how Satan and the multitude are related in Revelation.
 
 ##Linking Revelation and Ecclesiastes
 
