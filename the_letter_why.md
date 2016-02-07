@@ -51,7 +51,7 @@ Unleavened bread is acted upon by Yeast and time in order to make it rise, to gi
 
 *"Up, and forward,"* so sayeth the son of Saturn on his behalf.
 
-###This tiny passage, as well as a bit about the *"Salt of the Earth*" in the chapter titled "I'm Single" are huge references linking this book to the life of Jesus Christ in the New Testament.
+###This tiny passage, as well as a bit about the *"Salt of the Earth*" in the chapter titled "I'm Single" are huge references linking this book (and me) to the life of Jesus Christ in the New Testament.
 
 ##Yair
 God's "brings englightenment."  See "My Dying Breath" to find out truly why "air."
