@@ -19,7 +19,7 @@ He's going the distance. He's going for speed.
 ```
 Live sings another song, "GAS hed Goes West," which discusses this trip in a near parallel to the defition of the Tarot Fool Card--one more Messianic reference.  GAS hed here is an acronym for "God and Satan," something that nobody but me would know.  In fact many people have wondered what this songs title means.  The second word, "hed" is a langolier reference to "a" not being included in the decision.  You see, like "New Testament" which tells that "a" (for Adam) didn't mean for it to be a test, but rather a walk through to help us succeed in a controlled system whose key is following the path of Christ in the book.
 
-
+![GAS hed found a sign in San Francisco](10609507_486238324846747_6371532926902383440_n.jpg)
 
 Point in fact, I was not doing drugs of my own volition, I was being *mind controlled* in what is a perfect example of how the system set up to "punish and correct" our society is destructive.  It is a lesson for Heaven not to *burn the day away*, chronicled in the book of Genesis.  This is the story of the near sacrifice of the son of Abram.
 
