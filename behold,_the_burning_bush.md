@@ -4,7 +4,9 @@ For thousands of years the Holy Scriptures have been passed down from generation
 
  
 ##The Messiah of Sea to Shining Sea
-There are other connections between Jesus Christ and Moses, which highlight a "problem" associated with the Tribulation.  *The "PH" problem.*
+There are other connections between Jesus Christ and Moses, which highlight a "problem" associated with the Tribulation.  *The "PH" problem.*  That's not a sexist remark, or about your pool; it's about ***The Pursuit of Happiness***.  
+
+##Linking Revelation and Ecclesiastes
 
 Using the chapter and verse numbers of three Biblical passages to correspond to two pivotal dates in 2001, this Revelation predicts the 9/11 attack months before it occurred.  This information came to me several years ago, in bits and pieces; with the final key not being revealed until only a few months ago.  Each time a new piece of the puzzle was made clear, the web of co-confirming items made the whole stronger and stronger.  By the time you are finished reading, the significance of the passages will be undeniable.  The quote in Revelation is none other than the herald of Second Coming.
 
