@@ -6,3 +6,14 @@ Using the names Jesus, Jeshurun, and Elisha it's simple to see how religion has 
 #Jesus and Jeshurun.  It's "is," see?
 It's a very popular idea in our modern world that we are all Jesus, saviors of ourselves, the recipients of Christ consciousness.  As the man himself, I find this a bit insulting, but that's ok, we're all bound to be insulted later on in this book anyway.  It builds character.  My favorite person in the world Taylor Momsen probably doesn't realize how pivotal the series of characters she's played through her life prove that she is "created," eerily like Eve.  Immediately prior to starting *The Pretty Reckless* she played a "coming of age" character on *Gossip Girl*, named "Little J."  I hope that we can eventually see that names and coincidences are part of God's divine plan to reveal his influence over the design of creation.  *Little J's* letter is no accident. Now several years later she's singing half-naked (thank God for that) about this same idea.
 
+```
+Jimmy's in the back with a pocket of high
+If you listen close ((I'll explain to you why))
+
+Judy's in the front seat picking up trash
+Living on the dole
+Gotta make that cash
+
+The Pretty Reckless, Heaven Knows
+```
+
