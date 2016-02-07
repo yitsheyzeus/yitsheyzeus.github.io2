@@ -12,8 +12,9 @@ The band and front singer for Hooty and the Blowfish will deny any involvement i
 
 I see the movie title as a langolier question posed to me, Fish or King?  It uses "er" as a "logical or" whose answer should be self evident.  In this particular case, the answer will one day be obviously contrived; but for lets focus on "hooty."  This series of letters are representative of astrological symbols, and tell a story that ties together a number of Roman dieties.  The first letter, "h" is the symbol for Saturn; and it places first in these words because he is the God of travel.  Thus Saturn has jumped to the very beginning of our linear map of the evolution or progression of the divine character.
 
+![](10468434_547530192050893_5833726189810807079_o.jpg)
 
-
+Much like the Fluxx Capacitor, I fell off a toilet (not really) and drew this picture, which keenly illustrates the relationship between the symbols for Saturn, Venus, Mars, Saggitarious... and why.
 
 
 #Y-its-Ha'CK (Isaac)
