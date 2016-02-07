@@ -14,4 +14,5 @@
 * [Holy Water, Sang Rael](holy_water,_sang_rael.md)
 * Atlantis and The Doors
 * The Encl
+* His Heart and SOL
 
