@@ -43,9 +43,11 @@ God's message is that there will be no Hell, and that time travel should only be
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
 
 This is one huge reference to modern computing, in the name of the messiah I associate momst with. *Ha,* I wonder why?
+
 ##Yeast
 
 ##Yair
+God's "brings englightenment."  See "My Dying Breath" to find out truly why "air."
 
 ##Yetser
 This Hebrew word means "formation," and is very much associated with creation.  It's one of the most profound examples of Spanglish I have ever seen, because it's meaning changes with addition of Latin and Y.  The change in meaning is akin to a transition from "imagined" to "created" with the addition of purpose.  This is coming from a perspective where we are as of yet to be created in reality, to fully exist; and in order to gain that achievement this word implies we must be told our "purpose."
