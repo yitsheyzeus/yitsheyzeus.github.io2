@@ -12,15 +12,16 @@ The band and front singer for Hooty and the Blowfish will deny any involvement i
 
 I see the movie title as a langolier question posed to me, Fish or King?  It uses "er" as a "logical or" whose answer should be self evident.  In this particular case, the answer will one day be obviously contrived; but for lets focus on "hooty."  This series of letters are representative of astrological symbols, and tell a story that ties together a number of Roman dieties.  The first letter, "h" is the symbol for Saturn; and it places first in these words because he is the God of travel.  Thus Saturn has jumped to the very beginning of our linear map of the evolution or progression of the divine character.
 
-![](10468434_547530192050893_5833726189810807079_o.jpg)
-
 Much like the Fluxx Capacitor, I fell off a toilet (not really) and drew this picture, which keenly illustrates the relationship between the symbols for Saturn, Venus, Mars, Saggitarius... and why.  
 
-
+![](hootyiskthekey.png)
 
 ###It is no mistake that El and the cross are unified across HOLY HOOTY and HOT.  
 
 ##The Lord of Hosts
+Between *Joan of Arcadia* and *Fallen* you can see illustrated how the signs of the Goddess of Love and the God of War are unique representations of the Hebrew formal phrase for God, the *Lord of Hosts.*  In Hebrew, the word "hosts" is referring to the armies of Heaven, and so the God of War makes perfect sense.  
+
+However in practice, we are more inclined to see a parasite/host relationship; of the kind well discussed in the *Stargate* movie and television series.  Ra, and his relationship to his host, is a typographical description of God's relationship to you.
 
 ##My Birthday
 
