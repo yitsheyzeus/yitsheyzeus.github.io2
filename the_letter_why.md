@@ -75,7 +75,7 @@ From Venus to the day star, the "light of world" unites the Sun God Ra with the 
 
 ##*Y is Ra El*?
 ![](is ra el.jpg)
-I am the light of the world, says Ra: God of the Son.  This homophone correlates the ancient Egyptian God to his counterpart in ancient Judaism, be sure Ra is El.  So sayeth the Oracle of Light, Larry Ellison's name and link to ElisHa.  Once more, Ha is the sun.
+I am the light of the world, says Ra: now, God of the Son.  This homophone correlates the ancient Egyptian God to his counterpart in ancient Judaism, be sure Ra is El.  So sayeth the Oracle of Light, Larry Ellison's name and link to ElisHa.  Once more, Ha is the sun.
 
 Born on the 8th of December, Yankee Doodle should say; as this is the true birthday of the Messiah... the day of the Feast of the Immaculate Conception.  It is part of a great number of details of my life that are alluded to in religion, in the customs that surround the Bible; which has left so much direct reference to me that its clearly designed to point me out, to the world.
 
