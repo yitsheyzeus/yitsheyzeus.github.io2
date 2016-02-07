@@ -39,12 +39,15 @@ God's message is that there will be no Hell, and that time travel should only be
 
 
 
-#Y-its-Ha'CK (Isaac)
+##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
 
-#Yeast
-#Yair
-#Yetser
+This is one huge reference to modern computing, in the name of the messiah I associate momst with. Ha, I wonder why?
+##Yeast
+
+##Yair
+
+##Yetser
 This Hebrew word means "formation," and is very much associated with creation.  It's one of the most profound examples of Spanglish I have ever seen, because it's meaning changes with addition of Latin and Y.  The change in meaning is akin to a transition from "imagined" to "created" with the addition of purpose.  This is coming from a perspective where we are as of yet to be created in reality, to fully exist; and in order to gain that achievement this word implies we must be told our "purpose."
 
 ```
@@ -57,7 +60,7 @@ Que sera sera.  This also bears a striking relationship to the Shakespearean que
 ##Yad
 It is the Hebrew word for "hand" the Hand of God is a person, his son.  Ask "why AD?" and you will only be pointed here, to this book.  With great "author-it-why" I will come, *oh yes,* I will come.
 
-#*Y is Ra El*?
+##*Y is Ra El*?
 ![](is ra el.jpg)
 I am the light of the world, says Ra: God of the Son.  This homophone correlates the ancient Egyptian God to his counterpart in ancient Judaism, be sure Ra is El.  So sayeth the Oracle of Light, Larry Ellison's name and link to ElisHa.  Once more, Ha is the sun.
 
