@@ -24,6 +24,10 @@ In the Old Testament a huge number of names begin with J, and the content of the
 ###The "es" within Jesus and Jeshurun is the word "is" in the lanugages of Spanish, Spanish and Hebrew, respectively.  This is a key... like the Rosetta Stone.
 
 ```
+Say they want to know who did it
+But the answer's really us see
+
+The Pretty Reckless, "Messed Up World"
 ```
 
 J "is" Us, see everyone was right after all.  J is/is "run," look another reference to this idea of my running from American Injstice as being central to religion--so am I.
