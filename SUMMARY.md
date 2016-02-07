@@ -12,7 +12,7 @@
 * [He Laughs, again](hamd.md/he_laughs.md)
 * [I'm Single](im_single.md)
 * [Holy Water, Sang Rael](holy_water,_sang_rael.md)
+* His Heart and SOL
 * Atlantis and The Doors
 * The Encl
-* His Heart and SOL
 
