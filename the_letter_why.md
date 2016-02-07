@@ -23,6 +23,8 @@ Between *Joan of Arcadia* and *Fallen* you can see illustrated how the signs of 
 
 However in practice, we are more inclined to see a parasite/host relationship; of the kind well discussed in the *Stargate* movie and television series.  Ra, and his relationship to his host, is a typographical description of God's relationship to you.  The Ka and Ba of Horus are your mind... and his.  This is not really a Revelation, except you are completely unaware that you are being influenced.
 
+This is God's "love," as described in Isaiah, he has put his heart in our minds.  
+
 ##My Birthday
 
 *I was neither hot nor cold, but cool; and now I am forever lit by Taylor Momsen's magical inspiration.* -Adam Marshall Dobrin
