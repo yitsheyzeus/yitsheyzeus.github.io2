@@ -77,3 +77,5 @@ the Hebrew Bible.
 "Ha" is a reference to Isaac.  This is so primarily because I say so.  Ha!  Seriously though, his father Abraham's name was not always so, prior to his covenant with God it was Abram, the astute among you will immediately notice that the change wrought by Abram's interaction with God is the addition of these same two letters to his name.  
 
 I provide an incarnate reason why his Covenant-interaction is related to Isaac's sacrifice, in which he is laughing (that's what Isaac means in Hebrew by the way, "he laughs") at surviving the Crucifixion which the ancient parable of Genesis 22 is a clear reference to.
+
+
