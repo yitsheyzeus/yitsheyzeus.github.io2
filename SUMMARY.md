@@ -9,7 +9,7 @@
 * [Bread for the Poor](bread_for_the_poor.md)
 * [The Light of Heaven](the_light_of_heaven.md)
 * [My Dying Breath](my_dying_breath.md)
-* [He Laughs](hamd.md/he_laughs.md)
+* [He Laughs, again](hamd.md/he_laughs.md)
 * [I'm Single](im_single.md)
 * [Holy Water, Sang Rael](holy_water,_sang_rael.md)
 * Atlantis and The Doors
