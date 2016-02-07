@@ -75,6 +75,7 @@ the Mesopotamian Semites in the pre-Sargonic period,[5] and the God of
 the Hebrew Bible.
 ```
 
+![](bindingofisaac_lackandwhite.jpg)
 ##"THE" is a Holy Acronym for "to help everyone."
 
 "Ha" is a reference to Isaac.  This is so primarily because I say so.  Ha!  Seriously though, his father Abraham's name was not always so, prior to his covenant with God it was Abram, the astute among you will immediately notice that the change wrought by Abram's interaction with God is the addition of these same two letters to his name.  
