@@ -27,6 +27,7 @@ This is God's "love," as described in Isaiah, he has put his heart in our minds.
 
 ##My Birthday
 
+I was born, as I've said, on the date of the Catholic Feast commemorating the "Immaculate Conception" (full disclosure: "of Mary") and this date is 
 *I was neither hot nor cold, but cool; and now I am forever lit by Taylor Momsen's magical inspiration.* -Adam Marshall Dobrin
 
 ##The Sign of the Pretty Reckless
