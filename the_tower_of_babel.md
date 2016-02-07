@@ -100,3 +100,4 @@ episode took place before Isaac's birth. The Akedah has been a favorite
 theme in religious art for centuries.
 ```
 
+*The Essential Zohar* teaches us later about how wood, fire, and water are all related by Genesis 22.  Fire and water--whose union is noted repeatdly in the Zohar is a a reference to the word "***Ha'esh***," Hebrew for fire, containing the parted sea.
