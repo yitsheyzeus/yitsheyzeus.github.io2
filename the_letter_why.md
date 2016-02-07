@@ -29,7 +29,7 @@ This is God's "love," as described in Isaiah, he has put his heart in our minds.
 
 I was born, as I've said, on the date of the Catholic Feast commemorating the "Immaculate Conception" (full disclosure: "of Mary") and this date is very important in seeing why the sign of Saggitarius (my birth sign) is hidden and now revealed by the connection between "hooty" and "holy."  December 25 has another sign.
 
-*I was neither hot nor cold, but "cool;" and now I am forever lit by Taylor Momsen's magical inspiration.* -Adam Marshall Dobrin on Revelation 3:15.
+*I was neither hot nor cold, but "cool;" and now I am forever lit by Taylor Momsen's magical inspiration.* -Adam Marshall Dobrin on Revelation 3:15
 
 ![](The-Pretty-Reckless-Going-to-Hell-2013-1200x1200.png)
 *Going to Hell* has a very beautiful message, one which is sarcastic and definitely should not be taken at face value.  We are all saying the same thing; though you may not consider yourselves "babies," in relation to Heaven and God we are very young.  We deserve much better than we have today, and it is coming.  Today.
