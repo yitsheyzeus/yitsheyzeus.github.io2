@@ -54,7 +54,10 @@ Over and over I made this argument, for *assistive tools* to be offered to the w
 #The Minority Report is "My Dying Breath"
 
 
+#Phixing Freedom and Logic
 
+##Predestination
 
-
+##Eyes to see
+##The Vulcans
 
