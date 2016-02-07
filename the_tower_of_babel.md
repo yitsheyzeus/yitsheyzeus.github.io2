@@ -63,4 +63,17 @@ baskets left over. We’re talking serious one-upmanship here.
 ```
 ###Incase you missed it, "El" and "Ha" are both the word "the."  They are also two letter references to the name of God.  Savvy?
 
+```
+ʾĒl (or 'Il, written aleph-lamed)  is a Northwest Semitic word meaning
+"god" or "deity", or referring (as a proper name) to any one of multiple
+major Ancient Near East deities. Specific deities known as El or Il 
+include the supreme god of the Canaanite religion,[4] the supreme god of
+the Mesopotamian Semites in the pre-Sargonic period,[5] and the God of 
+the Hebrew Bible.
+```
+
+##"THE" is a Holy Acronym for "to help everyone."
+
+```
+```
 
