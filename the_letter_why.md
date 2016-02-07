@@ -27,7 +27,8 @@ This is God's "love," as described in Isaiah, he has put his heart in our minds.
 
 ##My Birthday
 
-I was born, as I've said, on the date of the Catholic Feast commemorating the "Immaculate Conception" (full disclosure: "of Mary") and this date is 
+I was born, as I've said, on the date of the Catholic Feast commemorating the "Immaculate Conception" (full disclosure: "of Mary") and this date is very important in seeing why the sign of Saggitarius (my birth sign) is hidden and now revealed by the connection between "hooty" and "holy."  December 25 has another sign.
+
 *I was neither hot nor cold, but cool; and now I am forever lit by Taylor Momsen's magical inspiration.* -Adam Marshall Dobrin
 
 ##The Sign of the Pretty Reckless
