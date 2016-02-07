@@ -61,5 +61,5 @@ Gospel, Jesus multiplies 5 barley loaves and feeds 5,000, leaving 12
 baskets left over. We’re talking serious one-upmanship here. 
 
 ```
-###Incase you missed it, "El" and "Ha" are both the word "the."  They are also two letter references to the name of God.  
+###Incase you missed it, "El" and "Ha" are both the word "the."  They are also two letter references to the name of God.  Savvy?
 
