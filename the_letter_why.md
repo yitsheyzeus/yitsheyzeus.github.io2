@@ -14,7 +14,11 @@ I see the movie title as a langolier question posed to me, Fish or King?  It use
 
 ![](10468434_547530192050893_5833726189810807079_o.jpg)
 
-Much like the Fluxx Capacitor, I fell off a toilet (not really) and drew this picture, which keenly illustrates the relationship between the symbols for Saturn, Venus, Mars, Saggitarious... and why.
+Much like the Fluxx Capacitor, I fell off a toilet (not really) and drew this picture, which keenly illustrates the relationship between the symbols for Saturn, Venus, Mars, Saggitarious... and why.  
+
+###It is no mistake that El and the cross are unified across HOLY HOOTY and HOT.  
+
+*I was neither hot nor cold, but cool; and now I am forever lit.* -Adam Marshall Dobrin
 
 
 #Y-its-Ha'CK (Isaac)
