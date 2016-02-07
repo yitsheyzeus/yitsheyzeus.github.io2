@@ -1,4 +1,5 @@
 # The Letter Why
+![](FLUXXCAPIMG_2422.jpg)
 
 The things in this chapter are what I call "superficial evidence," they are names and words that are probably boring; but yet confirm to me that I have been pre-selected, destined from before my birth to be the messiah.  A number of the examples on this page fulfill Biblical prophesy, and are literal teaching of Christ spoken about in the New Testament.  My twists are the intended original intent, which serves as a pointer to these examples which have real useful meaning, as well as serving as more proof that our languages are designed in order to reveal this truth now.
 
@@ -58,9 +59,3 @@ Christ mas
 navI   dad
 ```
 The hidden connections between languages, specifically Spanish and English through is something that is highlighted repeatedly in what will become obviously an extension of religion.  *The Taming of the Shrew* is an allusion to Span-glish-rew, a combination of Spanish, English, and Hebrew that marks a linguistic key to a prescient and divine hand in the construction of all of our language.  It is the Tower of Babel in reverse, proving that the fire of Prometheus is actually language, and through a number of examples which equate the meaning of a number of like-meaning words, God shows that their connections were known about at the time of the writing of the Torah.  
-
-###Jesus and Jeshurun, "It's us, see?"
-John 15:7 tells us that Jesus is the key; and this name is certainly the key to finding some Spanglish in our new langolier.  J "is" Us is a sort of "we are all Christ" statement hidden within his name.  This equality though is even more important because of another J name that confirms that "es" is truly "is."  Jeshurun, the name of the Chosen one from Isaiah 44 adds fuel to the fire by supplementing our Spanglish with some Shrew.. the Hebrew word for "is" is "hu."  And one more example of this "run" being totally messianic.
-
-
-This language is 
