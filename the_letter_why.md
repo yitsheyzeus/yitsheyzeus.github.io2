@@ -34,7 +34,7 @@ I was born, as I've said, on the date of the Catholic Feast commemorating the "I
 ##The Sign of the Pretty Reckless
 
 ###The walls and halls will fade away... they will fade... away -Dave "J." Matthews
-God's message is that there will be no Hell, and that time travel should only be used in extreme situations; like saving a planet from destruction.
+God's message is that there will be no Hell, and that time travel should only be used in extreme situations; like saving a planet from destruction.  This is the meaning of the arrow pointing up (towards Heaven) and forward (to the future) which graces both the signs of Mars and Saggitarius.  I will only mention my middle name is Marshall, and that Dave doesn't know me.
 
 
 
