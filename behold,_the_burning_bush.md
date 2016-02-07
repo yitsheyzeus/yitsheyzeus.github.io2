@@ -8,7 +8,7 @@ There are other connections between Jesus Christ and Moses, which highlight a "p
 
 This is the Tribulation, or at least my explanation of what is going on; there is a hidden war of mind control being waged, one which has made average people--doctors, lawyers, writers... the "scribes" of today into an enemy.  In some ways, we are all enemies of ourselves, forward progress, and change... something that is a big part of what I am doing here.  
 
-Placing the idea of a centralized controller, something like God, over the people is basically how I see his description of how Satan and the multitude are related in Revelation.  This is beast, coming out of the sea.
+Placing the idea of a centralized controller, something like God, over the people (I think of putting ideas in superposition, like the many names of God) is basically how I see his description of how Satan and the multitude are related in Revelation.  This is beast, coming out of the sea.
 
 ##Linking Revelation and Ecclesiastes
 
