@@ -66,8 +66,10 @@ From yet-ser,
 ```
 Que sera sera.  This also bears a striking relationship to the Shakespearean question "To be, or not to be?" which is highlighted in the chapter titled *I'm Single*.
 
-##Yad, ***Now,*** *it is "day." 
+##Yad, ***Now,*** *it is "day." *
 It is the Hebrew word for "hand" the Hand of God is a person, his son.  Ask "why AD?" and you will only be pointed here, to this book.  With great "author-it-why" I will come, *oh yes,* I will come.
+
+The idea that Adam and Eve are united bringing the "bright morning star" (AD for "it's after dark" then... it's A.M.) and Eve-ning, is part of a unique combination of male and female which is a big theme in the theology of God.  Samson and Delilah also unite as one, since I'm the only that that couldn't keep growing my hair long for so many years, because it looked... awkward.
 
 ##*Y is Ra El*?
 ![](is ra el.jpg)
