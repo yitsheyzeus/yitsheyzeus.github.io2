@@ -54,7 +54,8 @@ From yet-ser,
 ```
 Que sera sera.  This also bears a striking relationship to the Shakespearean question "To be, or not to be?" which is highlighted in the chapter titled *I'm Single*.
 
-#Yad
+##Yad
+It is the Hebrew word for "hand" the Hand of God is a person, his son.  Ask "why AD?" and you will only be pointed here, to this book.  With great "author-it-why" I will come, oh yes, I will come.
 
 #YisRa-El
 I am the light of the world, says Ra: God of the Son.  This homophone correlates the ancient Egyptian God to his counterpart in ancient Judaism, be sure Ra is El.  So sayeth the Oracle of Light, Larry Ellison's name and link to ElisHa.  Once more, Ha is the sun.
