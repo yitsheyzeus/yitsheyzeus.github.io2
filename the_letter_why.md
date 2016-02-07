@@ -21,7 +21,7 @@ Much like the Fluxx Capacitor, I fell off a toilet (not really) and drew this pi
 ##The Lord of Hosts
 Between *Joan of Arcadia* and *Fallen* you can see illustrated how the signs of the Goddess of Love and the God of War are unique representations of the Hebrew formal phrase for God, the *Lord of Hosts.*  In Hebrew, the word "hosts" is referring to the armies of Heaven, and so the God of War makes perfect sense.  
 
-However in practice, we are more inclined to see a parasite/host relationship; of the kind well discussed in the *Stargate* movie and television series.  Ra, and his relationship to his host, is a typographical description of God's relationship to you.
+However in practice, we are more inclined to see a parasite/host relationship; of the kind well discussed in the *Stargate* movie and television series.  Ra, and his relationship to his host, is a typographical description of God's relationship to you.  The Ka and Ba of Horus are your mind... and his.  This is not really a Revelation, except you are completely unaware that you are being influenced.
 
 ##My Birthday
 
