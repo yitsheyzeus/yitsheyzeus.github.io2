@@ -102,4 +102,4 @@ theme in religious art for centuries.
 
 *The Essential Zohar* teaches us later about how wood, fire, and water are all related by Genesis 22.  Fire and water--whose union is noted repeatdly in the Zohar is a a reference to the word "***Ha'esh***," Hebrew for fire, containing the parted sea. 
 
-Wood and fire have something to do with a relation between Adam and Isaac, I am sure.  The Zohar apparently uses some sort of humorous tone when discussing this part of Genesis, and it is to highlight and illustrate prescient knowledge of modern sexual innuendo.
+Wood and fire have something to do with a relation between Adam and Isaac, I am sure.  The Zohar apparently uses some sort of humorous tone when discussing this part of Genesis, and it is to highlight and illustrate prescient knowledge of modern sexual innuendo. 
