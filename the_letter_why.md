@@ -23,7 +23,7 @@ Between *Joan of Arcadia* and *Fallen* you can see illustrated how the signs of 
 
 However in practice, we are more inclined to see a parasite/host relationship; of the kind well discussed in the *Stargate* movie and television series.  Ra, and his relationship to his host, is a typographical description of God's relationship to you.  The Ka and Ba of Horus are your mind... and his.  This is not really a Revelation, except you are completely unaware that you are being influenced.
 
-This is God's "love," as described in Isaiah, he has put his heart in our minds.  Secretly, no less, which is most likely why he has chosen to highlight that "love" and "mind control" are nearly identical in the mythology of Adam; which God himself has described well in the name Venus, the *woman clothed with the "nus"* who has a missing half of her heart, in the word "***lo***ve-nus" and the sun all but obviously backwards.
+This is God's "love," as described in Isaiah, he has put his heart in our minds.  Secretly, no less, which is most likely why he has chosen to highlight that "love" and "mind control" are nearly identical in the mythology of Adam; which God himself has described well in the name Venus, the *woman clothed with the "nus"* who has a missing half of her heart, in the word "***lo***ve-nus" and the sun all but obviously backwards.  Please see how "Love" and "Sun" are components of the name of the Goddess of Love, and how important it is to understand that English did not exist when that name was created.
 
 ##My Birthday
 
