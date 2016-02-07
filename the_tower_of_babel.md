@@ -22,3 +22,8 @@ Following my theme that a huge number of characters in the Bible are actually fa
 In the Old Testament a huge number of names begin with J, and the content of their stories are descriptive of the "hidden one" which is the story of my life, literally.  Joseph was sold into slavery by his brothers because of his prophetic "dream" of a great future.  Job was tortured by God and Satan, put through a tribulation that is a reference to the Tribulation of Revelation; again the story of my life.  Jeremiah was thrown in jail for his beliefs, so was I.  His neighbors didn't believe him, and plotted against him: check.  Joshua and Jesus are related by their common divine destiny of leading the people to the *Promised Land*, also their names are "identical."  Jim Morrison prayed to the people that his fire would be lit, please, ***light my fire***.
 
 ###The "es" within Jesus and Jeshurun is the word "is" in the lanugages of Spanish, Spanish and Hebrew, respectively.  This is a key... like the Rosetta Stone.
+
+```
+```
+
+J "is" Us, see everyone was right after all.  J is/is "run," look another reference to this idea of my running from American Injstice as being central to religion--so am I.
