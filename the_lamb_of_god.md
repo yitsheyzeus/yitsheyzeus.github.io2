@@ -96,7 +96,7 @@ Fundamental to understanding the apocalypse is seeing that these events are all 
 ##I'm wrong about something
 Earlier when writing this book, I commented that nobody notices that the stories of Isaac and Christ are very similar.  I called it darkness.  This is apparently one of the most commented about facts in all of religion, and even has a specific name. This "type" (as my neighbor told me religious teachers call "superposition of stories") is referred to as "Akedah" and discussed earlier in the chapter titled "The Tower of Babel."
 
-Here, I make special note that Isaac and Isa are similar names, Isa being the Muslim name for Christ.  I am not sure how many people have noticed and commented on this strikingly obvious similarity and its correlation to the stories of sacrifice.  
+Here, I make special note that Isaac and Isa are similar names, Isa being the Muslim name for Christ.  I am not sure how many people have noticed and commented on this strikingly obvious similarity and its correlation to the stories of sacrifice.  There is a very important connection between Isaac and Isa in the name Abraham, which in Spanglish opens the "m" to reveal it is the missing "AC."  How's that for a link?
 
 I carry this idea forward to the name Isaiah, who was also "burnt by Heaven" as described in Chapter 19 of his book.
 
