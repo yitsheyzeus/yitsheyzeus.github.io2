@@ -35,3 +35,30 @@ J "is" Us, see everyone was right after all.  J is/is "run," look another refere
 #It's not enough, we need more evidence.
 Ok fine, it's not enough.  In like kind, correlating between Spanish and Hebrew words, this time "the" instead of "is" we have the answer to your prayers.  Here "is" which has just been divinely defined in the names above is used to show the equality between "El" and "Ha."
 
+```
+Dr. Marcellino D'Ambrosio teaches me about Jesus 
+in "Miracle of Loaves and Fishes"
+
+Finding the hidden meanings. Unraveling mysteries. Deciphering symbols. 
+The thrill inherent in all this is partly why Dan Brown’s book, 
+the Da Vinci Code, sold so well.
+
+This Sunday, the Church has put together readings to bring out
+connections that many of us would fail to see without a little help. 
+Just about every Christian has heard the story of the multiplication 
+of the loaves and fishes, in fact numerous times. But we’ve probably
+overlooked the fact that they were barley loaves. What significance
+could that have?
+
+Plenty. First of all, someone in the Old Testament had multiplied loaves,
+and they too were barley loaves. Elisha was the successor of Elijah, the
+greatest of all the prophets.
+ 
+Elijah had multiplied flour and oil to save a widow and her son from
+starvation. Elisha did a bit better than his master, multiplying 20 
+barleyloaves so as to feed 100, with some even left over. But in the
+Gospel, Jesus multiplies 5 barley loaves and feeds 5,000, leaving 12
+baskets left over. We’re talking serious one-upmanship here. 
+
+```
+
