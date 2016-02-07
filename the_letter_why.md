@@ -47,7 +47,9 @@ This is one huge reference to modern computing, in the name of the messiah I ass
 ##Yeast
 Picture, if you will a co-ordinate plane, one which has the past on the left, future on the right, Heaven above; and absolutely nothing below.  This is why *Light* and *the Three Wise Men* have come from the East.  
 
-Unleavened bread is acted upon by Yeast and time in order to make it rise, to give it fullness.  There is hidden imagery in Judaism that brings us from Matzoh in the desert (of time travel) to Challah and finally bagels.  This is all about *not wasting our time* changing the past.  *"Up, and forward,"* so sayeth the son of Saturn on his behalf.
+Unleavened bread is acted upon by Yeast and time in order to make it rise, to give it fullness.  There is hidden imagery in Judaism that brings us from Matzoh in the desert (of time travel) to Challah and finally bagels.  This is all about *not wasting our time* changing the past.  
+
+*"Up, and forward,"* so sayeth the son of Saturn on his behalf.
 
 ##Yair
 God's "brings englightenment."  See "My Dying Breath" to find out truly why "air."
