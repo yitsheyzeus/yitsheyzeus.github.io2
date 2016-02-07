@@ -3,7 +3,7 @@
 
 The things in this chapter are what I call "superficial evidence," they are names and words that are probably boring; but yet confirm to me that I have been pre-selected, destined from before my birth to be the messiah.  A number of the examples on this page fulfill Biblical prophesy, and are literal teaching of Christ spoken about in the New Testament.  My twists are the intended original intent, which serves as a pointer to these examples which have real useful meaning, as well as serving as more proof that our languages are designed in order to reveal this truth now.
 
-Throughout this book, you will find interesting tidbits of knowledge, a fresh take on old stories; tying them toge4ther in unique and original ways... and most importantly discussing how they relate to us today, they are in fact written for us, and about us.
+Throughout this book, you will find interesting tidbits of knowledge, a fresh take on old stories; tying them together in unique and original ways... and most importantly discussing how they relate to us today, they are in fact written for us, and about us.
 
 This is evidenced by the Matrix-like links between Biblical themes and modern people, places, things, and ideas.  I am simply pointing out these links, it is Biblical that they exist--the purpose of the Bible as a key is to show us very specifically that we are the focus of the Apocalypse.
 
@@ -11,6 +11,8 @@ This is evidenced by the Matrix-like links between Biblical themes and modern pe
 The band and front singer for Hooty and the Blowfish will deny any involvement in the use of their name as the actual post-creation key for the word "HOLY."  The name appears to have not been chosen in correlation to the ancient description of God, and yet I am very sure that this too is proof that divine inspiration is responsible for the selection.  This is how "inspiration" is proved, by not having it be overtly known by those inspired... and then later making it very obvious that there is infact a hidden meaning and purpose for the 'information transfer' in question.  Blowfish is an answer to the cinematic movie *Fisher King*, which in turn is related to the moniker of Christ:  The Fisher of Men.
 
 I see the movie title as a langolier question posed to me, Fish or King?  It uses "er" as a "logical or" whose answer should be self evident.  In this particular case, the answer will one day be obviously contrived; but for lets focus on "hooty."  This series of letters are representative of astrological symbols, and tell a story that ties together a number of Roman dieties.  The first letter, "h" is the symbol for Saturn; and it places first in these words because he is the God of travel.  Thus Saturn has jumped to the very beginning of our linear map of the evolution or progression of the divine character.
+
+
 
 
 
