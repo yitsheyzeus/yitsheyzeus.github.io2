@@ -88,4 +88,15 @@ conjugative form) on the altar. The angel of the Lord then bids Abraham to
 stay his hand and a ram is offered in Isaac's stead. The Akedah became in
 Jewish thought the supreme example of self-sacrifice in obedience to God's
 will and the symbol of Jewish martyrdom throughout the ages.
+
+The Akedah influenced both Christian and Islamic thought. In early
+Christian doctrine, the sacrifice of Isaac is used as a type for the
+sacrifice of Jesus (see Tertullian, Adversus Marcionem, 3:18; Clement of
+Alexandria, Paedogogica, 1:5, 1; Schoeps, in: JBL, 65 (1946), 385–92). In
+Islam, the Akedah is held up for admiration (Koran 37:97–111), but the more
+accepted opinion is that it was Ishmael, Abraham's other son and the
+progenitor of the Arabs, who was bound on the altar and that the whole
+episode took place before Isaac's birth. The Akedah has been a favorite
+theme in religious art for centuries.
 ```
+
