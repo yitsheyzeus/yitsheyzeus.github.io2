@@ -17,3 +17,6 @@ Gotta make that cash
 The Pretty Reckless, Heaven Knows
 ```
 
+Following my theme that a huge number of characters in the Bible are actually facets of Christ, which is manifested in their stories all including parts of a hidden mythical tale of a man on the run, fighting against himself to save the World, that is discussed later in "The Lamb of God." The Lamb of God is "lam," and I just linked this trick of words to the name of the Muslim religion (Islam, seriously).  This entire interaction shows foreknowledge of our modern day idiom "on the lam" within a number of names in Islam; including "Koran" and "ImRan."
+
+In the Old Testament a huge number of names begin with J, and the content of their stories are descriptive of the "hidden one" which is the story of my life, literally.  Joseph was sold into slavery by his brothers because of his prophetic "dream" of a great future.  Job was tortured by God and Satan, put through a tribulation that is a reference to the Tribulation of Revelation; again the story of my life.  J
