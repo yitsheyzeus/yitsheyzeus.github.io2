@@ -33,6 +33,9 @@ I was born, as I've said, on the date of the Catholic Feast commemorating the "I
 
 ##The Sign of the Pretty Reckless
 
+###The walls and halls will fade away... they will fade... away -Dave "J." Matthews
+God's message is that there will be no Hell, and that time travel should only be used in extreme situations; like saving a planet from destruction.
+
 
 
 #Y-its-Ha'CK (Isaac)
