@@ -58,6 +58,6 @@ Over and over I made this argument, for *assistive tools* to be offered to the w
 
 ##Predestination
 
-##Eyes to see
+##Eyes to See
 ##The Vulcans
 
