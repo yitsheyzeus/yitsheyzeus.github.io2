@@ -2,7 +2,6 @@
 
 For thousands of years the Holy Scriptures have been passed down from generation to generation, all the while holding within their secretive pages a message to our generation.  This message reveals technologies that are central to the creation of Heaven, things like mind mapping and time travel... it begins by setting the stage and proving that time travel exists and has been actively used in the creation of our civilization.  The book of Matthew links Moses and Christ through near parallel events, a microcosm of the 40 years in the desert and mounting of the peak of Sinai; days in the life of Christ.  This number 40 has been holy only to God (meaning secret), until now.  It is a homo-phonic reference to 4-D, the fourth dimensional wilderness that we currently are walking in.  The desert is one of lack of knowledge of the technology, and its possible uses for both good and evil.  It is the purpose of the Book of Exodus to help us end this dark period of wandering and find the light of the Son; ending the 10th Plague.  The stage is set, though, all the way in the Book of Revelation.
 
- 
 ##The Messiah of Sea to Shining Sea
 There are other connections between Jesus Christ and Moses, which highlight a "problem" associated with the Tribulation.  *The "PH" problem.*  That's not a sexist remark, or about your pool; it's about ***The Pursuit of Happiness***.  Both Jesus Christ and Moses had "enemies," ones whose names began with "PH."  If you did not just say "I see," you probably need me to point out that the Pharoah and Pharisees names are nearly identical.
 
@@ -11,7 +10,7 @@ This is the Tribulation, or at least my explanation of what is going on; there i
 Placing the idea of a centralized controller, something like God, over the people (I think of putting ideas in superposition, like the many names of God) is basically how I see his description of how Satan and the multitude are related in Revelation.  This is beast, coming out of the sea.
 
 Interestingly Samson, who is also a very strong contender for the most accurate Christ depiction had an enemy bearing "ph" in their name, the Philistines.
-
+ 
 ##Linking Revelation and Ecclesiastes
 
 Using the chapter and verse numbers of three Biblical passages to correspond to two pivotal dates in 2001, this Revelation predicts the 9/11 attack months before it occurred.  This information came to me several years ago, in bits and pieces; with the final key not being revealed until only a few months ago.  Each time a new piece of the puzzle was made clear, the web of co-confirming items made the whole stronger and stronger.  By the time you are finished reading, the significance of the passages will be undeniable.  The quote in Revelation is none other than the herald of Second Coming.
