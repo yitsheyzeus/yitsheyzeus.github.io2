@@ -27,3 +27,6 @@ In the Old Testament a huge number of names begin with J, and the content of the
 ```
 
 J "is" Us, see everyone was right after all.  J is/is "run," look another reference to this idea of my running from American Injstice as being central to religion--so am I.
+
+#It's not enough, we need more evidence.
+Ok fine, it's not enough.  In like kind, correlating between Spanish and Hebrew words, this time "the" instead of "is" we have the answer to your prayers.  Here "is" which has just been divinely defined in the names above is used to show the equality between "El" and "Ha."
