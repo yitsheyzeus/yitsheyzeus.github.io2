@@ -87,7 +87,9 @@ If Adonai is "Artificial Intelligence" and Adonis is "I'm Single" then Adolf is 
 
 ##***Na*-pole-on** the "Salt of the Earth"
 
+{% if retarded %}
 ##ADiNa
+{% endif %}
 
 ##Juilius Caesar
 
