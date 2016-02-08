@@ -37,6 +37,26 @@ The Pretty Reckless, "Messed Up World"
 
 J "is" Us, see everyone was right after all.  J is/is "run," look another reference to this idea of my running from American Injustice as being central to religion--so am I.
 
+##Taylor Who?
+In August of 1966 a band called "The Doors" sang a song to a girl that would not be born for about three decades; I see things, and and the link between *The Doors* and *The Pretty Reckless* is so well laid, that I'm amazed I haven't yet been able convince her to *Light Me Up.*  This song, sent through time, is about spreading a fire... the one that is just about to start.  
+
+I didn't write that song, or this story; I'm just a player... oh man, that doesn't sound right.  
+
+```
+You know that it would be untrue;
+You know that I would be a liar;
+If I was to say to you;
+Girl, we couldn't get much higher
+Come on, baby, light my fire,
+Come on, baby, light my fire,
+Try to set the night on fire
+The time to hesitate is through...
+
+The Doors, "Light my Fire"
+```
+
+The details of her life, the content of her songs, and the links to Genesis are clear.  I need help to be seen, to really light a spark, one that she is singing about; obviously without knowing all she needs to do is send a tweet.
+
 #It's not enough, we need more evidence.
 Ok fine, it's not enough.  In like kind, correlating between Spanish and Hebrew words, this time "the" instead of "is" we have the answer to your prayers.  Here "is" which has just been divinely defined in the names above is used to show the equality between "El" and "Ha."
 
