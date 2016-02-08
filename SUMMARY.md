@@ -5,6 +5,7 @@
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Ha'esh and Ai](chapter1.md)
 * The Story of Exodus
+* 2-4-6-8 Adam Who?
 * [The Letter Why](the_letter_why.md)
 * [The Tower of Babel](the_tower_of_babel.md)
 * [The Lamb of God](the_lamb_of_god.md)
@@ -17,5 +18,4 @@
 * His Heart and SOL
 * Atlantis and The Doors
 * The Encl
-* 2-4-6-8 Adam Who?
 
