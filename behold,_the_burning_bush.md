@@ -33,16 +33,16 @@ In what is without a doubt a visual description of the attack on the twin towers
 
 ##"On the clouds," for all eyes to see.
 ```
-And I saw an angel coming down out of heaven, 
+And I saw an ((airplane)) coming down out of heaven, 
 having the key to the Abyss and holding in his hand a great chain. 
 He seized the dragon, that ancient serpent, who is the devil, 
 or Satan, and bound him for a thousand years. 
 He threw him into the Abyss, and locked and sealed it over him
 
-Revelation 20
+Revelation 20 & ((ish))
 
 Then will appear the sign of the Son of Man in heaven. 
-And then all the peoples of the earth[c] will mourn when 
+And then all the peoples of the earth will mourn when 
 they see the Son of Man coming on the clouds of heaven, 
 with power and great glory.
 
