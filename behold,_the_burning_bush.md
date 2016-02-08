@@ -11,7 +11,7 @@ I saw an angel coming down from heaven, with a great chain in his hand. 9/11. I 
 ###Ecclesiastes 9:11
 
 Bush quotes it on 1/20/2001; he answers the *riddle not asked* in Revelation 1:20.  Day and month link to chapter and verse.
-Ecc 9:11 lists the first 7 planets, from Mercury to Saturn and Uranus .. time and chance.  
+Ecc 9:11 lists the first 7 planets, from Mercury to Saturn and Uranus .. the messenger, time and chance.  
 
 ###The 7 stars are (actually) the first 7 planets.  Details explained below.
 
