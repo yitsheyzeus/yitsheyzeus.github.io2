@@ -4,6 +4,14 @@ The stage is set.  All around you fancy props, things like Presidents and astero
 
 The Iron Rod of Christ and the Rod of Aaron are promised Doors from Earth to Heaven, a way to visit and return.  Their songs--the band--often revolve around the Plagues of Egypt.  Riders on the Storm, Peace Frog, and ... (come on, baby) Light my Fire... all Plagues.  The storm is a cloud of dust settling in the wake of a battle in time, one which has repeatedly changed the time line; except... we would never know.  Were it not for religion, a chronicle of round trips and rewinds, repeated attempts to save the world from destruction.  At this juncture, it's that time travel itself which threatens the safety of the future, if you think about it, that makes sense.  Religion is warning us to look sternly and searching back, and only move forward.  Cautiously, yet optimistically.
 
+##Succinctly, this is the Sign of the Son
+Behold he is coming on the clouds for all eyes to see. 9/11. 
+I saw an angel coming down from heaven, with a great chain in his hand. 9/11. I returned, and saw under the son... that time and chance happeneth to them all. Ecc 9:11
+
+Bush quotes it on 1/20/2001; he answers the riddle not asked in Revelation 1:20.  Day and month link to chapter and verse.
+Ecc 9:11 lists the first 7 planets, from mercury to Saturn and Uranus .. time and chance.  
+
+The 7 stars are 7 planets.  Details explained below.
 
 ##Linking Revelation and Ecclesiastes
 
