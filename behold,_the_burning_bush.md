@@ -2,6 +2,8 @@
 
 The stage is set.  All around you fancy props, things like Presidents and asteroid belts are being made to mirror Biblical concepts and confuse you into thinking that we could be living inside a storybook.  George W. Bush is the burning bush.  Ceres and it's recently found ice is the water Moses extracted from the side of a mountain, to bring us out of the desert of Earthbound loneliness to a place where the possibility of interplanetary colonization is in sight.
 
+What I mean to say is we have been blind to the true meaning of scripture.  It's actually all about us, designed to walk us through this transition from blindness to the light.
+
 The Iron Rod of Christ and the Rod of Aaron are promised Doors from Earth to Heaven, a way to visit and return.  Their songs--the band--often revolve around the Plagues of Egypt.  Riders on the Storm, Peace Frog, and ... (come on, baby) Light my Fire... all Plagues.  The storm is a cloud of dust settling in the wake of a battle in time, one which has repeatedly changed the time line; except... we would never know.  Were it not for religion, a chronicle of round trips and rewinds, repeated attempts to save the world from destruction.  At this juncture, it's that time travel itself which threatens the safety of the future, if you think about it, that makes sense.  Religion is warning us to look sternly and searching back, and only move forward.  Cautiously, yet optimistically.
 
 ##Succinctly, this is the Sign of the Son
