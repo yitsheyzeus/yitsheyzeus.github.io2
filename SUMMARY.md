@@ -1,6 +1,7 @@
 # Summary
 
 * [Introduction](README.md)
+* Music Saves All Souls
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Ha'esh and Ai](chapter1.md)
 * [The Letter Why](the_letter_why.md)
@@ -15,5 +16,4 @@
 * His Heart and SOL
 * Atlantis and The Doors
 * The Encl
-* Music Saves All Souls
 
