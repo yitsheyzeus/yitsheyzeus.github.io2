@@ -4,9 +4,9 @@
 * [Music Saves All Souls](music_saves_all_souls.md)
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Ha'esh and Ai](chapter1.md)
+* The Story of Exodus
 * [The Letter Why](the_letter_why.md)
 * [The Tower of Babel](the_tower_of_babel.md)
-* The Story of Exodus
 * [The Lamb of God](the_lamb_of_god.md)
 * [Bread for the Poor](bread_for_the_poor.md)
 * [The Light of Heaven](the_light_of_heaven.md)
