@@ -64,7 +64,7 @@ Truly what I see being exposed here is proof that there is angelic or outside co
 A.D. comes up in more interesting places.  The Hebrew name meaning "Lord God" is **Adonai** and the period of time that comes right before Christmas, you know when Adam is trying to get noticed and nobody is listening? Oh right, **ADvent.**
   
 
-Then there's the Greek god, **Adonis;** which might highlight that there is a clear language within words, a "Cyper" if you will that links myths and names together in a sort of "Matrix" across the globe and through time.  If **Adonai** is "AD on Artificial Intelligence" (which makes logical sense as a reason for Lord Christ's being) then Adonis must be "me" on "Information Systems."   No wait,
+Then there's the Greek god, **Adonis;** which might highlight that there is a clear language within words, a "Cyper" if you will that links myths and names together in a sort of "Matrix" across the globe and through time.  If **Adonai** is "AD on Artificial Intelligence" (which makes logical sense as a reason for Lord Christ's being) then **Adonis** must be "me" on "Information Systems."   No wait,
 "I'm Single" makes much more sense in the context of the story.
 
  
