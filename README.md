@@ -29,9 +29,10 @@ The language has a very useful communication mechanism, often the answer to ques
 
 {% endif %}
 
-The language shows God's divine influence in everything down to the construction of the glyphs we write our words with, and the words themselves.  What's more important than that though is seeing his influence in our lives; in the macroscopic things like the themes of movies, the lyrics of our favorite songs, and our first kiss.
-
 Understanding this language is necessary to fully see the message that God has left for us, his desires and wisdom.  It is not the most exciting task, but it leads to very interesting information that literally is the cornerstone of Heaven.  Both on Earth, and in the skies above.  The story of my life is my "why" I am the Messiah, I have lived what I see as a microcosm of our creation... culminating in a torturous "sacrifice" in our legal system which includes the Trial of Christ, all part of the Cross.  Through my suffering, God is highlighting problems in our society and giving us real solutions.  
+
+
+The language shows God's divine influence in everything down to the construction of the glyphs we write our words with, and the words themselves.  What's more important than that though is seeing his influence in our lives; in the macroscopic things like the themes of movies, the lyrics of our favorite songs, and our first kiss.
 
 ###To be clear, this is about the adoption of technology in order to assist the evolution of our civilization.
 
