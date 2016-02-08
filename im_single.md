@@ -22,7 +22,13 @@ Christ o PH "er" Columbus
 ```
 documents the intrinsic relationship between Uncle Samael and the historical creation of the largest institution of democracy in the world.  Amerigo, Sinbad, Christopher... all names which have symbolic reference to the Fifth Element, a cinematic messiah in content that bring light from the hair of LeeLoo Dallas.  Echoing the "B" of ADIB as a grammatically poor identity statement; the image below should clarify how A.D. and Silicon are related to the true Fifth Element, Boron.   I don't think the symbolism in the name of the movie is hidden anymore, after seeing how it ties to the name "Sinbad."
 
+
+
+#The Fifth Element illustrated.  
+###A link between Leeloo Dallas, Silicon, Boron, and "A.D."
 ![](sinbad.png)
+
+
 ```
 Five is Fourteen, the number of God.
 ---------------------------------------------------
@@ -36,9 +42,6 @@ So why are you asking me to show him to you?
 John 14:9
 ```
 
-
-#The Fifth Element illustrated.  
-###A link between Leeloo Dallas, Silicon, Boron, and "A.D."
 The Book of Revelation for tells of a mystery, one which is partially solved by the name "Sinbad" and its application of The Fifth Element to Shakespeare's question to the ages: "To be or not to be?"
 
  
