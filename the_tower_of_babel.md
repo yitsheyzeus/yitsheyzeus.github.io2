@@ -17,7 +17,7 @@ Judy's in the front seat picking up trash
 Living on the dole
 Gotta make that cash
 
-The Pretty Reckless, "Heaven Knows"
+The Pretty Reckless, "Heaven Knows" & ((ish))
 ```
 
 Before "Little J" Taylor played a character named "Little Cindy-Adam" whose thematic relation to a Hebrew name of God, *Yeshua* goes all that way back to Eden.  Who?  Yes, who-ah.  Dr. Seuss's little joke does wonders for introduce what it has been like to be the "hidden messiah."  
