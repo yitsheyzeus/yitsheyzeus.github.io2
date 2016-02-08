@@ -41,6 +41,7 @@ In Heaven and on Earth, the correct allocation of resources, and knowledge of wh
 ##DNA, SalesLogix, and Unlimited Power.
 
 ##Voting with our minds
+I'm not going to be advocating this.  I am telling you it is already being done, in Heaven and on Earth; and 
 
 ##The New Political Party
 
