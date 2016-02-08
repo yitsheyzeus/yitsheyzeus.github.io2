@@ -46,11 +46,15 @@ And then all the peoples of the earth[c] will mourn when
 they see the Son of Man coming on the clouds of heaven, 
 with power and great glory.
 
-But about that day or hour no one knows, not even the angels in heaven, nor the Son, but only the Father.  As it was in the days of Noah, so it will be at the coming of the Son of Man.
+But about that day or hour no one knows, not even the angels 
+in heaven, nor the Son, but only the Father.  
+
+As it was in the days of Noah, so it will be at the 
+coming of the Son of Man.
 
 Matthew 24:30,36
-
 ```
+Never have I applied the verses of Matthew to the 9/11 attack, but in retrospect they fit well.  If the day and hour in question were the attack, and the spectacle on the clouds ... then all eyes have seen.  This retrospective link opens the door for the "sign of the Son," the proof that the Father did indeed know, in *Chapter and Verse.*
 
 Ecclesiastes 9:11, in its full version delineates each of the planets from Mercury to Uranus.  Each of these lines corresponds to an apocalyptic teaching of Christ.  The first links the Messenger of the Gods to the beginning of the message, and the periodic table element Hg.  Mercury lights the fire of the Bush which is described with the Hebrew word “Ha'esh,” meaning holy fire.  Hidden within this word is another one, the English word for sea... parted with an apostrophe and reflected.  This paradoxical reference to a later event in Exodus, Moses parting the red sea, shows us prescient knowledge of both the story and the English language.
 
