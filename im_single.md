@@ -80,7 +80,7 @@ Being hidden from the world has been difficult for me, you can imagine I'd vent 
 #The Fall of the Anti-Christ(s)
 It appears that a number of historical figures have references to "Adam and Venus," figures who are commonly described as Anti-Christs.  It appears that our history has been used as a sort of storage device, chronicling the past mistakes of the figure designed to bring great change to our world, the messiah.  All three listed below have references within their names to either me, salt, or the inintial "JC."  All three were responsible for the destruction of liberty, fascism, a plebescite turned dictatorship, and Caesar riding into Rome to turn a Republic into the Empire.  More than historical records of what could very well be "futures past," they are serious warnings both me and the world.  Christ is not meant to be a king, and never was.  
 
-Look to Saturn's championship of the people, and the Roman God's love for what is a decidedly Athenian idean of the power of the people for clues as to why Arthur and his Round Table are much better patterns for the Second Coming than "Lord Vader."  I mean Jesus.
+Look to Saturn's championship of the people, and the Roman God's love for what is a decidedly Athenian idean of the power of the people for clues as to why Arthur and his Round Table are much better patterns for the Second Coming than "Lord V**ad**er."  I mean Jesus.
 
 ##ADolf and Eva
 If Adonai is "Artificial Intelligence" and Adonis is "I'm Single" then Adolf is "Adam Dobirn on light fails.*  The names of Adolf and Eva also bear a striking resemblance to Adam and Eve in Eden, it seems obvious that they are intended to be mirrors of a "coming of Christ" gone wrong, literally written in our history.  
