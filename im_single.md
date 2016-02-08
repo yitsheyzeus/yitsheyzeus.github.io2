@@ -76,11 +76,11 @@ Being hidden from the world has been difficult for me, you can imagine I'd vent 
 
 #The Fall of the Anti-Christ(s)
 
-##ADiNa
-
 ##ADoLF and Eva
 
 ##***Na*-pole-on** the "Salt of the Earth"
+
+##ADiNa
 
 ##Juilius Caesar
 
