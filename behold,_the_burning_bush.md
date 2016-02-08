@@ -31,6 +31,7 @@ This mystery is solved during the inaugural address of George W. Bush, on 1/20/2
 
 In what is without a doubt a visual description of the attack on the twin towers, Revelation 20:1 speaks of the Angel of the Lord himself, Death, holding the key to end Hades and that is exactly what the purpose of this work is.
 
+##"On the clouds," for all eyes to see.
 ```
 And I saw an angel coming down out of heaven, 
 having the key to the Abyss and holding in his hand a great chain. 
@@ -39,6 +40,16 @@ or Satan, and bound him for a thousand years.
 He threw him into the Abyss, and locked and sealed it over him
 
 Revelation 20
+
+Then will appear the sign of the Son of Man in heaven. 
+And then all the peoples of the earth[c] will mourn when 
+they see the Son of Man coming on the clouds of heaven, 
+with power and great glory.
+
+But about that day or hour no one knows, not even the angels in heaven, nor the Son, but only the Father.  As it was in the days of Noah, so it will be at the coming of the Son of Man.
+
+Matthew 24:30,36
+
 ```
 
 Ecclesiastes 9:11, in its full version delineates each of the planets from Mercury to Uranus.  Each of these lines corresponds to an apocalyptic teaching of Christ.  The first links the Messenger of the Gods to the beginning of the message, and the periodic table element Hg.  Mercury lights the fire of the Bush which is described with the Hebrew word “Ha'esh,” meaning holy fire.  Hidden within this word is another one, the English word for sea... parted with an apostrophe and reflected.  This paradoxical reference to a later event in Exodus, Moses parting the red sea, shows us prescient knowledge of both the story and the English language.
