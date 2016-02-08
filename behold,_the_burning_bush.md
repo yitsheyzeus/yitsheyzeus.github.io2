@@ -6,9 +6,11 @@ The Iron Rod of Christ and the Rod of Aaron are promised Doors from Earth to Hea
 
 ##Succinctly, this is the Sign of the Son
 Behold he is coming on the clouds for all eyes to see. 9/11. 
-I saw an angel coming down from heaven, with a great chain in his hand. 9/11. I returned, and saw under the son... that time and chance happeneth to them all. Ecc 9:11
+I saw an angel coming down from heaven, with a great chain in his hand. 9/11. I returned, and saw under the son... that time and chance happeneth to them all. 
 
-Bush quotes it on 1/20/2001; he answers the riddle not asked in Revelation 1:20.  Day and month link to chapter and verse.
+###Ecclesiastes 9:11
+
+Bush quotes it on 1/20/2001; he answers the *riddle not asked* in Revelation 1:20.  Day and month link to chapter and verse.
 Ecc 9:11 lists the first 7 planets, from mercury to Saturn and Uranus .. time and chance.  
 
 The 7 stars are 7 planets.  Details explained below.
