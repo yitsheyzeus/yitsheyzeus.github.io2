@@ -13,7 +13,7 @@ I saw an angel coming down from heaven, with a great chain in his hand. 9/11. I 
 Bush quotes it on 1/20/2001; he answers the *riddle not asked* in Revelation 1:20.  Day and month link to chapter and verse.
 Ecc 9:11 lists the first 7 planets, from mercury to Saturn and Uranus .. time and chance.  
 
-The 7 stars are 7 planets.  Details explained below.
+###The 7 stars are 7 planets.  Details explained below.
 
 ##Linking Revelation and Ecclesiastes
 
