@@ -1,5 +1,8 @@
-# Behold, the Burning Bush
+# We are in Exodus
 
+The stage is set.  All around you fancy props, things like Presidents and asteroid belts are being made to mirror Biblical concepts and confuse you into thinking that we could be living inside a storybook.  George W. Bush is the burning bush.  Ceres and it's recently found ice is the water Moses extracted from the side of a mountain, to bring us out of the desert of Earthbound loneliness to a place where the possibility of interplanetary colonization is in sight.
+
+The Iron Rod of Christ and the Rod of Aaron are promised Doors from Earth to Heaven, a way to visit and return.  Their songs--the band--often revolve around the Plagues of Egypt.  Riders on the Storm, Peace Frog, and ... (come on, baby) Light my Fire... all Plagues.
 ##Linking Revelation and Ecclesiastes
 
 Using the chapter and verse numbers of three Biblical passages to correspond to two pivotal dates in 2001, this Revelation predicts the 9/11 attack months before it occurred.  This information came to me several years ago, in bits and pieces; with the final key not being revealed until only a few months ago.  Each time a new piece of the puzzle was made clear, the web of co-confirming items made the whole stronger and stronger.  By the time you are finished reading, the significance of the passages will be undeniable.  The quote in Revelation is none other than the herald of Second Coming.
