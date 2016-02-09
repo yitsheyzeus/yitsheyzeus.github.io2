@@ -89,7 +89,8 @@ Like Lord Christ, Hitler died for his sins.
 
 ##***Na*-pole-on** the "Salt of the Earth"
 
-Na is the element linked directly to Venus, the consort of the Messiah, El, etc.  It matches my girlfriend (ex-wife actually)'s name, and places right in the middle of this list of anti-Christ's.  Napoleon makes the grade for taking a plebescite to "gain power," 
+Na is the element linked directly to Venus, the consort of the Messiah, El, etc.  It matches my girlfriend (ex-wife actually)'s name, and places right in the middle of this list of anti-Christ's.  Napoleon makes the grade for taking a plebescite to "gain power," and then becoming a totalitarian dictator.  Napoleon (whose "pole" reference might be reminiscent of the rod of Christ, or Phillip K. Dick, or Richard Nixon) managed to completely ignore the will of the people afterwords, adding him to the list of leaders whose rule resulted in a loss of populace control of the government.
+
 ###Herod and Herbert
 Like Amish and Iran, this these two names are "pronoun-accusations."  The king at the time of the birth of Christ, Herod (perhaps a reference to George H.W. Bush) suggest that Christ *is the Rod* rather than weilding it.  This imagery, of being the hammer of thor, applies well in the context of Zeus--a lightning rod that is being used to focus the introduction of "Biblical light."  It just comes to me, it's drawn to me, I'm magnetic.
 
