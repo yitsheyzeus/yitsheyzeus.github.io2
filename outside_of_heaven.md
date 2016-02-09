@@ -50,10 +50,11 @@ This "religion of the sea" stuff is a reference to an old Nostradamus prophesy, 
 
 Hunger for the great light. Genesis to Revelation.
 
-Nostradamus [X.96] 
  The Religion of the name of the seas will win out 
  Against the sect of the son of “Adaluncatif”: 
  The stubborn, lamented sect will be afraid of the two wounded by A and A.
+
+Nostradamus [X.96] 
 
 ```
 
