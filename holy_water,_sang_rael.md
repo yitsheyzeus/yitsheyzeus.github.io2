@@ -20,3 +20,20 @@ From the S E A of Eden, to the multitude of Revelation.
                                 A ...damah
                                 ```
                                 
+Taylor Momsen sings that "everyone must be saved."  There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  
+
+Add in the Plague of Water to Blood (from Exodus, a "Blessing in Disguise"), and the multitude turns to the family of Christ.  I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood.  
+
+Taylor's music is inspirational to me, and I am sure it is inspired,  She talks about many things that are part of this "secret" revelation I am trying to share.  
+
+This book I am writing has a really cool website, that lets people comment on the individual paragraphs.  I have a message to Taylor there, and if she would read the book, or glance at it... she might see how she can be the match that lights Jim Morrison's fire.
+
+That's "More, I son.."  
+
+https://www.gitbook.com/book/adjkjc/time-and-chance/discussions/2
+
+Clicking on the "chapter" will bring you to the actual book, which is much prettier (and filled with information.)  I mentioned her song, Absolution or Burn I can't remember.. where she says she "can't find her door" links to another message of Christ.   The Iron Rod read backwards is tied to the band The Doors; named after gateways to Heaven that are secretly prophesied to come .... soon.  I haven't seen mine either, but the message of the Rod is that it is juxtaposed to Aarons "let my people go" through the periodic table symbol for Iron.. Fe...
+
+Doors, For everyone.  
+
+The story goes that Adam said Jesus couldn't exist, because he would *never rule for a thousand years with an Iron Rod*.  Being born in America, as Queen sings "here we are, born to be Kings" I changed my mind about the rod, when it became a key to the Doors.
