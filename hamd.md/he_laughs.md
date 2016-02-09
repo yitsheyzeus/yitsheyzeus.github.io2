@@ -35,7 +35,7 @@ Yet another rendition of "the name," and now an entire English sentence which al
 #The Consort of El
 To continue laughing we need to hear a bit about my ex-wife, who is reprentative of Eve, Mary, Asherah... the whole lot (ha!) of females that also double as "all humanity."  Eve can be short for "Everyone," Mary has the Spanish word for sea right in her name, and the Whymar Republic to point out that she also has a reason Y.  Her true name is "Nanna" and that name is the reason why the second Planet (the Goddess of Love has a corresponding element of Na.  This is the beginning of Christ's teaching on salt, and it is a direct cause for the story of Lot's wife (also her) being turned into a pillar of salt.  Adam and Eve are either pillars of creation, or dust.. and she happened to turn and see a city being destroyed; my reading of this story has her "turning around" to come back to me... but only after seeing that the world is being saved.  This chastisement of her character might sound reminiscent of the stories about Mary Magdalene, that's for a reason. 
 
-
+![](periodic_table_sodium_tile_coaster.jpg) n ![](periodic_table_sodium_tile_coaster.jpg) 
 
 Another good secret is that she is also the *Woman clothed in the son* from Revelation, this a simple matter of seeing that Venus, the Goddess of Love, has only half a heart (missing the lo of love)... and no sun (negated by the reverse: nus).
 
