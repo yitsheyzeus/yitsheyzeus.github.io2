@@ -40,6 +40,6 @@ My middle name is *Mars*hall, and I see this song as a reference to it; a pointe
 
 Four races, all bi-pedal, *Sim*ian in nature.. ten fingers and two limbs.  The link to binary, 10 is 2 in that base conversion, and our modern computing structure is uncanny.  The idea that we may be designed by the *Two of Everything God* to appear to be a perfect computing allusion, is interesting, to say the least.  
 
-###Meanwhile were these races actually in existence in reality, there is no fucking way that they did not all have a common point of origin... Earth.
+###Meanwhile were these races actually in existence in reality, there is no *fucking* way that they did not all have a common point of origin... Earth.
 
-This Point of Origin idea is a reference to Stargate, and these stars are the beginning of understanding that there is a religion of the sea... one that revolves around the sea being an allusion to outer space.  
+This Point of Origin idea is a reference to Stargate, and these stars are the beginning of understanding that there is a religion of the sea... one that revolves around the sea being an allusion to outer space.  Star Trek might be pointing out our hubris, to think we are alone in the Universe, and that everything out there would be just like us.  Imagine there are *aliens* all around you, invisible ones, secretly working to build a new Heaven.  Using us.  This is the premise of what is apocryphally described as the Archons, and bears a striking resemblance to our view of angels and also demons.  
