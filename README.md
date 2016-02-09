@@ -13,7 +13,7 @@ For instance, George W. Bush is represented by the Burning Bush, a reference to 
 
 ###This is *not* **[The Encl.](./the_encl.html)**  It's the beginning.
 
-Welcome to Eden, we are in that place.  Earth, Eden, Egypt, Edom... all Biblical references to *now*, to Zion.
+Welcome to Eden, we are in that place.  Earth, Eden, Egypt, Edom... all Biblical references to *now*, to Zion.  I am Adam, *the Adam*, and this your guide to salvation.
 ##True Purpose
 The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a [mask for technology](the_encl.html) and a means to oppress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
 
