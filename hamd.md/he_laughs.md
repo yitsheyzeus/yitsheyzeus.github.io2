@@ -40,7 +40,7 @@ To continue laughing we need to hear a bit about my ex-wife, who is reprentative
 
 The little "n" is short for A.D. the Heart of her name.
 
-Another good secret is that she is also the *Woman clothed in the son* from Revelation, this a simple matter of seeing that Venus, the Goddess of Love, has only half a heart (missing the lo of love)... and no sun (negated by the reverse: nus).
+Another interesting trick of names that links to scripture is that she is also the *Woman clothed in the son* from Revelation, this a simple matter of seeing that Venus, the Goddess of Love, has only half a heart (missing the lo of love)... and no sun (negated by the reverse: nus).
 
 ###ha'laylot
 We will return to teaching more about salt later, and also to my status as being single.  For now, rest assured that the rumors that I am saving the world just to get girls are highly exaggerated.  Still, there are so many references it might be worth a mention that we probably don't think about whether or not the returning Jesus would be the world's most elligible bachelor in history, or not.  Lot, or the "tool" of God is most definitely a corresponding Christ manifestation.  
