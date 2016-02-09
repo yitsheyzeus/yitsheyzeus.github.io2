@@ -52,7 +52,7 @@ Over and over I made this argument, for *assistive tools* to be offered to the w
 "Well, but are 'in'.." on the way to Heaven, using the hidden language that named this anti-addiction drug, and walks me from my last name, DOB-R-IN, to the pearly gates.  This thing that I am asking for, an ability to positively change myself is part of the prophesy of solutions that has been delivered by Phillip K. Dick, who holds both my "letter," as his middle initial, and a reference to me, to Osiris, and to the Washington Monument.  I'm a dick, I guess, for being very sure that the series science fictional works that have come to us from above are a blueprint to solve so many of our social problems that I am sure this particular Android dreams furvitily of not "Electric Sheep," but of a society in control of its own actions for the very first time in all of history.
 
 #The Minority Report is "My Dying Breath"
-
+[http://www.whenistheapocalypse.com/pkd-prophesy](http://www.whenistheapocalypse.com/pkd-prophesy)
 
 #Phixing Freedom and Logic
 
