@@ -52,7 +52,7 @@ As I've mentioned this fire is one in the same with the Burning Bush.. and the E
 
 It's about equality, the Pursuit of Happiness, and a link between the "AH" of Asherah, Leah, Rebekah, Sarah... and Mary.  All about the sea, the multutude, being the true bride of Revelation.  This marriage is different from most, its bringing freedom to a land that has lost it; and urging us to be more open to all races, the other sex, and people's personal right to live any lifestyle they please.  This is what the Pursuit of Happiness is about, and it's a big part of waking up to realize that we aren't as free or loving as we should be.  Nobody is.
 
-Wake up, Menorah is God's answer, the question is [His SOL.](his_heart_and_sol.html)  That's for Sons of Liberty, Statue of Liberty... See Our Light?  I'll show you the flame that burns in my heart.
+Wake up, Menorah is God's answer, the question is [His SOL.  That's for Sons of Liberty, Statue of Liberty... See Our Light?  I'll show you the flame that burns in my heart.](his_heart_and_sol.html)
 
 ##So is it Save I Or... what?
 Save the cheerleader, save the world; from *Heroes.*  Now, we find out that the messiah needs some saving too.  I'm having a hell of a time with the law and government in Fort Lauderdale, it's almost as if I'm living in the [times of the Crucifixion.](the_lamb_of_god.html)
