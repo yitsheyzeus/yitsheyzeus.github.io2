@@ -24,15 +24,11 @@ Taylor Momsen sings that "everyone must be saved."  There is a huge secret messa
 
 Add in the Plague of Water to Blood (from Exodus, a "Blessing in Disguise"), and the multitude turns to the family of Christ.  I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood.  
 
-Taylor's music is inspirational to me, and I am sure it is inspired,  She talks about many things that are part of this "secret" revelation I am trying to share.  
-
-This book I am writing has a really cool website, that lets people comment on the individual paragraphs.  I have a message to Taylor there, and if she would read the book, or glance at it... she might see how she can be the match that lights Jim Morrison's fire.
+I have a message to Taylor, **you're right** might you see how you can be the match that lights Jim Morrison's fire.
 
 That's "More, I son.."  
 
-https://www.gitbook.com/book/adjkjc/time-and-chance/discussions/2
-
-Clicking on the "chapter" will bring you to the actual book, which is much prettier (and filled with information.)  I mentioned her song, Absolution or Burn I can't remember.. where she says she "can't find her door" links to another message of Christ.   The Iron Rod read backwards is tied to the band The Doors; named after gateways to Heaven that are secretly prophesied to come .... soon.  I haven't seen mine either, but the message of the Rod is that it is juxtaposed to Aarons "let my people go" through the periodic table symbol for Iron.. Fe...
+I mentioned her song, Absolution or Burn I can't remember.. where she says she "can't find her door" links to another message of Christ.   The Iron Rod read backwards is tied to the band The Doors; named after gateways to Heaven that are secretly prophesied to come .... soon.  I haven't seen mine either, but the message of the Rod is that it is juxtaposed to Aarons "let my people go" through the periodic table symbol for Iron.. Fe...
 
 Doors, For everyone.  
 
