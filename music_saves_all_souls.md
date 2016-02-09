@@ -33,7 +33,7 @@ Did you know this song about a Lion sleeping is messianic, literally about Chris
 
 I learned all about neuroscience, and mind control technologies available to us, and not.  Things that are on the horizon, the possible ways what I experienced could be done.  I was beginning to wake up.  
 
-Seeing that this song about the Lion of Judah sleeping in Eden was about me was the very beginning.  It's all about waking up in the morning, and seeing the son rise.  Modern imagery about cats, lions, and hair are all references to Christ.  Sleeping to being unaware.  The jungle is in Eden.
+Seeing that this song about the Lion of Judah sleeping in Eden was about me was the very beginning.  It's all about waking up in the morning, and seeing the son rise.  Modern imagery about cats, lions, and hair are all references to Christ.  Sleeping to being unaware.  The jungle is in Eden.  I am Adam.
 
 ##Morning Has Broken
 
