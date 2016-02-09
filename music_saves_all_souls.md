@@ -35,6 +35,8 @@ I learned all about neuroscience, and mind control technologies available to us,
 
 Seeing that this song about the Lion of Judah sleeping in Eden was about me was the very beginning.  It's all about waking up in the morning, and seeing the son rise.  Modern imagery about cats, lions, and hair are all references to Christ.  Sleeping to being unaware.  The jungle is in Eden.  I am Adam.
 
+The process of waking up has not been pleasant, you could say I'm not a morning person.
+
 ##Morning Has Broken
 
 #The Dave Matthews Band
