@@ -1,7 +1,16 @@
 # Music Saves All Souls
 
 Music talks to me, it's God speaking.  He tells me stories, makes promises, and proves something very important.  He shows his hand, his control over culture and the direction of our future.  It's about proving the influence, and backing it up by explaining how the technology works.  This is neuroscience in action, telling us a story about Revelation in music.  
+
+The fire comes back, it's Nero's as he fiddles on the rooftop--Heaven--with our minds.  This historical story is a metaphor for now, for what's going on in the heads of these musicians who are speaking the words of God unknowingly.  The act of doing it--and then explainging that--frees us from one kind of slavery, not knowing it is being done.  The message, another--
+
 ```
+What am I bidding, for this old ((civilization))
+((Nero)) cried, as he held it up, with a smile
+A thousand dollars, and who'll make it two?
+
+                   The Touch of the Master Hand
+
 Five billion proud, willing to punch it out. -Dave Matthews
 Everyone must be saved. -Taylor Momsen
 In the beginning -God
