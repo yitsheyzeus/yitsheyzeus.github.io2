@@ -92,6 +92,8 @@ Like Lord Christ, Hitler died for his sins.
 
 Na is the element linked directly to Venus, the consort of the Messiah, El, etc.  It matches my girlfriend (ex-wife actually)'s name, and places right in the middle of this list of anti-Christ's.  Napoleon makes the grade for taking a plebescite to "gain power," and then becoming a totalitarian dictator.  Napoleon (whose "pole" reference might be reminiscent of the rod of Christ, or Phillip K. Dick, or Richard Nixon) managed to completely ignore the will of the people afterwords, adding him to the list of leaders whose rule resulted in a loss of populace control of the government.
 
+Richard Nixon, and the story of Watergate similarly link to the rod, I mean dick, of the messiah.  Don't believe me?  Isaac was burned by Heaven, and in comtemporary fiction his counterpart is the messianic Emmanuel Goldstein.  Link to Nixon? Burnstein.  It's a Jew reference.  Here's the funniest one: Woodward.  Got wood? Go directly to the psych ward.  I probably belong there anyway.  The "wood" joke might be tied to Genesis 22, check the Zohar.
+
 Napoleon was jailed after losing his war, rather than being murdered.
 ###Herod and Herbert
 Like Amish and Iran, this these two names are "pronoun-accusations."  The king at the time of the birth of Christ, Herod (perhaps a reference to George H.W. Bush) suggest that Christ *is the Rod* rather than weilding it.  This imagery, of being the hammer of thor, applies well in the context of Zeus--a lightning rod that is being used to focus the introduction of "Biblical light."  It just comes to me, it's drawn to me, I'm magnetic.
