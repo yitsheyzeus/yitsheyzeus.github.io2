@@ -96,7 +96,7 @@ Richard Nixon, and the story of Watergate similarly link to the rod, I mean dick
 
 I'm not doing this because I like talking about it, or because I think it's appropriate.  I am doing it because it is here, on purpose.  It has been left in the hidden record of history, and it well matches the "burning" that I experienced.  Isaiah 20 might shed light, but Adam's nudity was forced from above, and so was mine.  This is a war, a mind control war; get past silly things like nakedness and realize that there are bigger things at stake.  Like your freedom, and sanity. 
 
-It's all over history.  Yankee Doodle?  He went to town riding on the Pale Horse of the Apocalypse.  Who signed the Declaration of Independence?  John Hancock.  America, freedom, and Adam's Rod are forever etched in our history.  Also written in stone in Washington D.C. at the Washington Monument: homage to Osiris, and the Egyptian dieties who ruled with the same rod.
+It's all over history.  Yankee Doodle?  He went to town riding on the Pale Horse of the Apocalypse.  Who signed the Declaration of Independence?  John Hancock.  America, freedom, and Adam's Rod are forever etched in our history.  Also written in stone in Washington D.C. at the Washington Monument: homage to Osiris [who lost his in a "tree"),](outside_of_heaven.html) and the Egyptian dieties who ruled with the same rod.
 
 Napoleon was jailed after losing his war, rather than being murdered.
 ###Herod and Herbert
