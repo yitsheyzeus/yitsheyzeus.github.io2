@@ -18,5 +18,5 @@
 * Atlantis and The Doors
 * His Heart and SOL
 * The Encl
-* Outside of Heaven
+* [Outside of Heaven](outside_of_heaven.md)
 
