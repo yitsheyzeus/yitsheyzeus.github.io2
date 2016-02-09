@@ -7,6 +7,8 @@ Saving the universe is the purpose of religion, and God's plan is to make angels
 ##I am the living vine.
 Vine and tree references, like *The Tree of Knowledge* and *The Tree of Life* are references to a computer metaphor.  A decision tree, and this is what I believe the *multiverse* that quantum theorists are trying to explain is.  Not a [construct of nature, but a design](./outside_of_heaven.md) to save the Universe, a tool built to create branches in time, based on things we do.  
 
+Quantum theory, actually, yields some serious *Light* on whether or not we are in this place I am describing.  The idea of *wave function collapse* makes absolutely no sense... in reality.  In Heaven it makes much more, it is a way to lessen processing power, not rending things that are not being observed by a conscious person.  All the way back at the big bang, perhaps proof our Universe is designed to cater to consciousness.  Sacred consciousness.
+
 ![The Lamda, an upside down Y](sign_why.png)
 ##The Creator's Light
 ###d = c + l, our glyphs, the letters of the Latin alphabet contain hidden messages.
