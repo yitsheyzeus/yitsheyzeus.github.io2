@@ -16,7 +16,7 @@ This one is special, because it explains the domain that this book is located at
 
 ###"**C**" the **L**ight.  "d" is for darkness, a hidden truth.  
 
-I'm El (c the l), that's a name for the Jewish creator deity also.  Well, I'm using his name for right now.  I hear he looks just like me.
+I'm El (c the l), that's a name for the Jewish creator deity also.  Well, I'm using his name for right now.  I hear he looks just like me.  C the K of Clark Kent, it's pointing to L too.
 
 **What goes up, must come down** says Isaac, New to N, and this historical [story parallels Eden, and the rise and fall of Adam. ](http://www.whenistheapocalypse.com/the-modern-fall-of-man) And humanity.  Back up, the new N says, once we've hit rock bottom.. I mean, "reality."
 
