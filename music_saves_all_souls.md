@@ -4,6 +4,8 @@ Music talks to me, it's God speaking.  He tells me stories, makes promises, and 
 
 Like the secret language, seeing the influence of an outside force in popular culture begins to offer proof of the existence of God.  This is about faith, and ending the need for it... so you too, like Moses, can be sure... You've heard his voice, and seen the fire.
 
+I know these lyrics are inspired, they are about me; and neither you nor the author knew that until I came.  This is how he proves he is there, by weaving a story between songs... linking them to movies and to people.  To me, to President's, to you.
+
 It comes back in Rome below...  as *Nero* fiddles on the rooftop--Heaven--with our minds.  This historical story is a metaphor for now, for what's going on in the heads of these musicians who are speaking the words of God unknowingly.  The act of doing it--and then explainging that--frees us from one kind of slavery, not knowing it is being done.  The message, another--that we need to see what is going on.  Powers in Heaven are trying to hide its existence, and they are winning.  You don't believe it, not really.  It's there, not watching--but manipulating.  Are they saving everyone... or hiding for a reason?
 
 The fire is spreading ...
