@@ -82,6 +82,7 @@ It appears that a number of historical figures have references to "Adam and Venu
 
 Look to Saturn's championship of the people, and the Roman God's love for what is a decidedly Athenian idean of the power of the people for clues as to why Arthur and his Round Table are much better patterns for the Second Coming than "Lord V**ad**er."  I mean Jesus.
 
+This series of leaders may represent successive versions of myself, the details of their life perhaps records of the reasons for the rise and fall of past messiahs.  Their fates also, highlighted as a sort of log file for histories lost by time travel.
 ##ADolf and Eva
 If Adonai is "Artificial Intelligence" and Adonis is "I'm Single" then Adolf is "Adam Dobrin on light fails.*  The names of Adolf and Eva also bear a striking resemblance to Adam and Eve in Eden, it seems obvious that they are intended to be mirrors of a "coming of Christ" gone wrong, literally written in our history.  
 
