@@ -26,3 +26,6 @@ It's an important question, one which I do not know the answer to, but I believe
 
 ##Is space the final frontier
 Or are we living in a Hollywood basement?
+
+##Mars
+There's a pool at NASA, where spacesuits are tested.  Astronauts know they are in the pool.  If we are inside of Heaven, and they care about the truth, our input, and actually building a true Heaven... we need to know the answers to these questions.
