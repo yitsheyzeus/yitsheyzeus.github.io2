@@ -19,7 +19,7 @@ Edom is a Kingdom with a hidden king, the emperor's clothes have made him *invis
 
 Eden is the land I love, a *den* of Lions, family in the chalice... the Holy Grail, that is Earth.
 
-Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  This is my light.
+Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.
 
 ![](1503307_10152194732013420_1589480428_n.jpg)
 ##True Purpose
