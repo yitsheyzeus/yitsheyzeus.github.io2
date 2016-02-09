@@ -6,7 +6,7 @@ The fire comes back, it's Nero's as he fiddles on the rooftop--Heaven--with our 
 
 ```
 What am I bidding, for this old ((civilization))
-((Nero)) cried, as he held it up, with a smile
+((Nero/Atlas)) cried, as he held it up, with a smile
 A thousand dollars, and who'll make it two?
 
                    The Touch of the Master Hand
