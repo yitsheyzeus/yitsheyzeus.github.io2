@@ -102,7 +102,7 @@ Napoleon was jailed after losing his war, rather than being murdered.
 ###Herod and Herbert
 Like Amish and Iran, this these two names are "pronoun-accusations."  The king at the time of the birth of Christ, Herod (perhaps a reference to George H.W. Bush) suggest that Christ *is the Rod* rather than weilding it.  This imagery, of being the hammer of thor, applies well in the context of Zeus--a lightning rod that is being used to focus the introduction of "Biblical light."  It just comes to me, it's drawn to me, I'm magnetic.
 
-###I will tell you this.  The Iron Rod of Christ is the best thing that we have going.  It's a prophesy guaranteeing Heaven for everyone.  Let's make that a reality.
+###I will tell you this.  The Iron Rod of Christ is the best thing that we have going.  It's a [prophesy guaranteeing Heaven for everyone.](holy_water,_sang_rael.html)  Let's make that a reality.
 
 {% if retarded %}
 ##ADiNa
