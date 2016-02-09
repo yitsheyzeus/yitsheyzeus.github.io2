@@ -20,7 +20,7 @@ But I could be wrong
 The Prett Reckless, "Absolution"
 ```
 
-Does Taylor know what she's talking about?  She might, all of her music is very inspired... a communication from above.  And, as she says, she might be wrong.  I'm not sure if she's talking about VR (I mean, does she mean to be) but her words stand out, loudly.  Taylor, what's this line about?
+Does [Taylor know what she's talking about?](the_letter_why.html) She might, all of her music is very inspired... a communication from above.  And, as she says, she might be wrong.  I'm not sure if she's talking about VR (I mean, does she mean to be) but her words stand out, loudly.  Taylor, what's this line about?
 
 This question, of whether or not we are actually *in* Heaven relates to Virtual Reality, and whether or not Eden's Garden is a reference to a virtual place, where we believe we are in reality... the "progenitor Universe" as Jacob always says; or inside of a game like place, designed to build heaven, colonize the Universe, all using the magic available from being in a computer generated place.
 
