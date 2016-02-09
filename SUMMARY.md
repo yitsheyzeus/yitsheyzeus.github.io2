@@ -17,6 +17,6 @@
 * [Holy Water, Sang Rael](holy_water,_sang_rael.md)
 * Atlantis and The Doors
 * His Heart and SOL
-* The Encl
+* [The Encl](the_encl.md)
 * [Outside of Heaven](outside_of_heaven.md)
 
