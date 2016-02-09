@@ -116,7 +116,11 @@ Tying up our list of failed messiahs, we have Julius Caesar.  He rode into Rome'
 ```
 I thought this place was an ((Emperor))
 Now I'm relaxed, ((it's only me))
+
+There's a little bit of something me, 
+In EVERYTHING.
 ```
+
 JC obvious shares his initials with Jesus Christ.  "Et tu brute" the story of his demise is a close parallel to that of Christ and Judas.  
 
 ##Dreaming time in "reverse"
