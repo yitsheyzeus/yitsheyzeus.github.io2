@@ -13,6 +13,9 @@ What am I bidding, for this old ((civilization))
 ((Nero/Atlas)) cried, as he held it up, with a smile
 A thousand dollars, and who'll make it two?
 
+He played a Melody as pure and sweet as a caroling 
+angel sings.
+
                    The Touch of the Master Hand
 
 Five billion proud, willing to punch it out. -Dave Matthews
