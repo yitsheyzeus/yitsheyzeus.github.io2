@@ -115,7 +115,7 @@ J or El?
 K right between the Gods.  That K is the key to the Time line of Ecc 9:11, Potassium, which expands to *Person of Time* and the middle of the element links to Chance, Uranus--and Uranium. 
 ![](potassium.jpg)
 
-K is the pointer to El, see "L <" which is pretty much what religion, and then our planet is.  A pointer to Jesus.  Searching for Adam in Eden, swirling around Adamah; a number of symbols work for Earth. @, 0, and K.  
+K is the pointer to El, see "L <" which is pretty much what religion, and then our planet is.  A pointer to Jesus.  Searching for Adam in Eden, swirling around Adamah; a number of symbols work for Earth. @, 0, and K.  Stargate adds "point of origin" to the possibilities, simply by turning the K 90 degrees, and then curling the l into an 0.  Now K is a pointer to Earth.  Searching for light?  It's all around you.
 
 There's an entire chapter dedicated to the "ran" of these elements, see [The Lamb of God.](the_lamb_of_god.md)
 
