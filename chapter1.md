@@ -50,6 +50,7 @@ As I've mentioned this fire is one in the same with the Burning Bush.. and the E
 
 ###Men or AH?
 
+It's about equality, the Pursuit of Happiness, and a link between the "AH" of Asherah, Leah, Rebekah, Sarah... and Mary.  All about the sea, the multutude, being the true bride of Revelation.
 
 ##So is it Save I Or... what?
 Save the cheerleader, save the world; from *Heroes.*  Now, we find out that the messiah needs some saving too.  I'm having a hell of a time with the law and government in Fort Lauderdale, it's almost as if I'm living in the [times of the Crucifixion.](the_lamb_of_god.html)
