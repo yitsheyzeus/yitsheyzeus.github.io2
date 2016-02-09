@@ -20,6 +20,8 @@ But I could be wrong
 The Prett Reckless, "Absolution"
 ```
 
+Does Taylor know what she's talking about?  She might, all of her music is very inspired... a communication from above.  And, as she says, she might be wrong.  I'm not sure if she's talking about VR (I mean, does she mean to be) but her words stand out, loudly.  Taylor, what's this line about?
+
 This question, of whether or not we are actually *in* Heaven relates to Virtual Reality, and whether or not Eden's Garden is a reference to a virtual place, where we believe we are in reality... the "progenitor Universe" as Jacob always says; or inside of a game like place, designed to build heaven, colonize the Universe, all using the magic available from being in a computer generated place.
 
 It's an important question, one which I do not know the answer to, but I believe the word "yetser" for formation in Hebrew and *Ender's Game* by Or**son** Scott Card indicates we are currently in a Heaven-like place.. only without the social structure that a true utoptia would have.  Ender's Game, if he is a messianic figure, might indicate that once we have achieved this leap to a better society, we will be "written in reality," as I have thought since learning of this question.
