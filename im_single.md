@@ -94,6 +94,8 @@ Na is the element linked directly to Venus, the consort of the Messiah, El, etc.
 
 Richard Nixon, and the story of Watergate similarly link to the rod, I mean dick, of the messiah.  Don't believe me?  Isaac was burned by Heaven, and in comtemporary fiction his counterpart is the messianic Emmanuel Goldstein.  Link to Nixon? Burnstein.  It's a Jew reference.  Here's the funniest one: Woodward.  Got wood? Go directly to the psych ward.  I probably belong there anyway.  The "wood" joke might be tied to Genesis 22, check the Zohar.
 
+I'm not doing this because I like talking about it, or because I think it's appropriate.  I am doing it because it is here, on purpose.  It has been left in the hidden record of history, and it well matches the "burning" that I experienced.  Isaiah 20 might shed light, but Adam's nudity was forced from above, and so was mine.  
+
 Napoleon was jailed after losing his war, rather than being murdered.
 ###Herod and Herbert
 Like Amish and Iran, this these two names are "pronoun-accusations."  The king at the time of the birth of Christ, Herod (perhaps a reference to George H.W. Bush) suggest that Christ *is the Rod* rather than weilding it.  This imagery, of being the hammer of thor, applies well in the context of Zeus--a lightning rod that is being used to focus the introduction of "Biblical light."  It just comes to me, it's drawn to me, I'm magnetic.
