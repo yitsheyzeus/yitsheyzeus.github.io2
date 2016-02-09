@@ -9,7 +9,7 @@ Matthew 3:11
 ##The Revelation of Adam
 The Holy Bible is a prophesy whose details predictively chronicle the *second coming* of Christ.  It was once a map to the future, but it has become our present.  Specifically the story of the Exodus and the Gospels of Christ are abstract representations of the post 9/11 world, and my life.  These stories are filled with vibrant allusions to modern persons, places and ideas.
 
-For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of [proving the existence of time travel](); and a microcosmic look at the "Biblical" relationship between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."
+For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of [proving the existence of time travel](behold,_the_burning_bush.md); and a microcosmic look at the "Biblical" relationship between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."
 ##True Purpose
 The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a [mask for technology](the_encl.md) and a means to oppress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
 
