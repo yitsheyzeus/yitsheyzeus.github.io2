@@ -94,7 +94,7 @@ Na is the element linked directly to Venus, the consort of the Messiah, El, etc.
 
 Richard Nixon, and the story of Watergate similarly link to the rod, I mean dick, of the messiah.  Don't believe me?  Isaac was burned by Heaven, and in comtemporary fiction his counterpart is the messianic Emmanuel Goldstein.  Link to Nixon? Burnstein.  It's a Jew reference.  Here's the funniest one: Woodward.  Got wood? Go directly to the psych ward.  I probably belong there anyway.  The "wood" joke might be tied to Genesis 22, check the Zohar.
 
-I'm not doing this because I like talking about it, or because I think it's appropriate.  I am doing it because it is here, on purpose.  It has been left in the hidden record of history, and it well matches the "burning" that I experienced.  Isaiah 20 might shed light, but Adam's nudity was forced from above, and so was mine.  
+I'm not doing this because I like talking about it, or because I think it's appropriate.  I am doing it because it is here, on purpose.  It has been left in the hidden record of history, and it well matches the "burning" that I experienced.  Isaiah 20 might shed light, but Adam's nudity was forced from above, and so was mine.  This is a war, a mind control war; get past silly things like nakedness and realize that there are bigger things at stake.  Like your freedom, and sanity. 
 
 Napoleon was jailed after losing his war, rather than being murdered.
 ###Herod and Herbert
