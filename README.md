@@ -38,7 +38,7 @@ Understanding this language is necessary to fully see the message that God has l
 
 The language shows God's divine influence in everything down to the construction of the glyphs we write our words with, and the words themselves.  What's more important than that though is seeing his influence in our lives; in the macroscopic things like the themes of movies, the lyrics of our favorite songs, and our first kiss.  These things, collectively our culture, will eventually be seen as an extension of religion--or what it has become.  Terminator, The Pretty Reckless, and "The Birds and the Bees" are all a big party of the *"mythology of Adam."*
 
-###To be clear, *this* is about the adoption of technology in order to assist the evolution of our civilization.
+###To be clear, [*this* is about the adoption of technology in order to assist the evolution of our civilization.](the_encl.html)
 
 
 I intend to prove that religion is designed to highlight a series of words and ideas that in and of themselves prove the existence of God, the creation of our civilization, and that these two things are inextricably related to time travel.  There are a number of other technologies which I am sure religion has served to mask and expose--at the same time--over the millennium; but this single one, more than any other, is fundamental.  So *time* graces the first word of the phrase "*Time and Chance*" figures prominently in the true words of the Burning Bush, words which in themselves aid in my revelation that we are walking around in the Biblical Land of Egypt, the place where Moses' story begins.
