@@ -63,7 +63,9 @@ Had you not been "new," you would almost certainly already know that "what goes 
 R.E.M. sings about feeling fine, but I am anything but.  In case you are wondering, this is not the end of the world; it is for certain the "end of the beginning."  For me, I bring you a story of a war in a court room, one which I am sure links the Trial of Christ to the Book of Judges.  In this war, Samson gains strength, presumably of character recognition, from his long hair and its likeness to that of Jesus Christ.  I on the other hand have not had this benefit, despite my sincere likeness; and I fear to be destined the fate of the Son of our Uncle Sam... 
 
 ##and the Word was with God
-I must be alluding to something with these references to John 1:1, and, [believe it--more than a psuedo-superstitious aversion to the word "end." 9's](the_encl.html) and the letter "I" be damned, I'm going to tell you *the word* is fire.
+I must be alluding to something with these references to John 1:1, and, [believe it--more than a psuedo-superstitious aversion to the word "end." 9's](the_encl.html) and the letter "I" be damned, I'm going to tell you:
+
+###[*the word* is fire.](chapter1.md)
 
 It's not just in this somewhat well known John verse, it's also in Matthew 3:11, where it heralds the second coming of Jesus Christ.  Moe than anything, this fire begins all the way back in the Book of Exodus.  It's the one witnessed by Moses, the final character in my "Messianic short list."
 
