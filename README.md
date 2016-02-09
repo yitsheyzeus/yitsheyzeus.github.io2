@@ -34,6 +34,8 @@ Ha, Ra, Ka, and Ba.  You'd be surprised how much religion is in those 8 letters.
 
 In that day we see that all of religion and all of history and all of everything around us is designed to do something miraculous.  To be revealed, and show us how important we are.  It's all about us, and all about now, and how we move forward with the news and tools that we will find have truly come to us from above with divine purpose.  It's about building Heaven.
 
+Heaven is a real place, in the future, and it is our destiny to build it.  We know this because Heaven has sent religion back in time to ensure that we do not make any mistakes building it.  The Biblical prophesy, the scripture it comes in, all a package sent through time to walk us through this process.
+
 ##True Purpose
 The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a [mask for technology](the_encl.html) and a means to oppress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
 
