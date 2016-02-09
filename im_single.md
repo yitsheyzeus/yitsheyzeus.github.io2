@@ -87,7 +87,8 @@ If Adonai is "Artificial Intelligence" and Adonis is "I'm Single" then Adolf is 
 
 ##***Na*-pole-on** the "Salt of the Earth"
 ###Herod and Herbert
-Like Amish and Iran, this these two names are "pronoun-accusations."  The king at the time of the birth of Christ, Herod (perhaps a reference to George H.W. Bush) suggest that Christ *is the Rod* rather than weilding it.  This imagery, of being the hammer of thor, applies well in the context of Zeus--a lightning rod that is being used to focus the introduction of "Biblical light."
+Like Amish and Iran, this these two names are "pronoun-accusations."  The king at the time of the birth of Christ, Herod (perhaps a reference to George H.W. Bush) suggest that Christ *is the Rod* rather than weilding it.  This imagery, of being the hammer of thor, applies well in the context of Zeus--a lightning rod that is being used to focus the introduction of "Biblical light."  It just comes to me, it's drawn to me, I'm magnetic.
+
 ###
 
 {% if retarded %}
