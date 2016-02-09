@@ -115,6 +115,8 @@ J or El?
 K right between the Gods.  That K is the key to the Time line of Ecc 9:11, Potassium, which expands to *Person of Time* and the middle of the element links to Chance, Uranus--and Uranium. 
 ![](potassium.jpg)
 
+K is the pointer to El, see "L <" which is pretty much what religion, and then our planet is.  A pointer to Jesus.  Searching for Adam in Eden, swirling around Adamah; a number of symbols work for Earth. @, 0, and K.  
+
 There's an entire chapter dedicated to the "ran" of these elements, see [The Lamb of God.](the_lamb_of_god.md)
 
 ![](chemical-symbol-uranium_Square%20Crop.jpg)
