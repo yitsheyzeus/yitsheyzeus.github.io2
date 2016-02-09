@@ -22,6 +22,9 @@ Eden is the land I love, a *den* of Lions, family in the chalice... the [Holy Gr
 Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.md)
 
 ![](1503307_10152194732013420_1589480428_n.jpg)
+
+[I am Isaac,](the_lamb_of_god.html) [laughing..](he_laughs,again.html) that's what his name means.  The laughter is over the fact that the Crucifixion is a burning from Heaven, on an alatar.  Behold, I was dead, and now am alive... forevermore.
+
 ##True Purpose
 The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a [mask for technology](the_encl.html) and a means to oppress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
 
