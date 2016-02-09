@@ -117,6 +117,10 @@ K right between the Gods.  That K is the key to the Time line of Ecc 9:11, Potas
 
 K is the pointer to El, see "L <" which is pretty much what religion, and then our planet is.  A pointer to Jesus.  Searching for Adam in Eden, swirling around Adamah; a number of symbols work for Earth. @, 0, and K.  Stargate adds "point of origin" to the possibilities, simply by turning the K 90 degrees, and then curling the l into an 0.  Now K is a pointer to Earth.  Searching for light?  It's all around you.
 
+This is "Grey Light," which ties Grey Skull to Gene Grey, Grey Street, and a series of pictures I drew in jail.. to share what I knew with the world the only way I could.
+
+
+
 There's an entire chapter dedicated to the "ran" of these elements, see [The Lamb of God.](the_lamb_of_god.md)
 
 ![](chemical-symbol-uranium_Square%20Crop.jpg)
