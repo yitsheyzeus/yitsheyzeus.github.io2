@@ -26,7 +26,6 @@ Everyone must be saved. -Taylor Momsen
 In the beginning -God
 ```
 
-Move along, there's more to read in subsequent chapters.
 ##In the Jungle
 
 Did you know this song about a Lion sleeping is messianic, literally about Christ?  I didn't either, because *I was sleeping.*  My life was normal until about 2010, when I got a crash course in the Tribulation, something that has quite a bit to do with the neuroscience involved in manipulating people's thoughts.  There's a large group of mind control victims; people who are being used to expose the existence of this technology against their will; in 2010 I became one of them.
