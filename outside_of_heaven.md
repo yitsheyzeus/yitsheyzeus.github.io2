@@ -36,11 +36,8 @@ There's a pool at NASA, where spacesuits are tested.  Astronauts know they are i
 The walls and halls will fade away... they will fade away.
 
 Dave Matthews Band
-```
 
-My middle name is *Mars*hall (and I *might* be Mars), and I see this song as a reference to it; a pointer to the messianic story about Mars colonization, and the Final Frontier that *Star Trek* so lengendarily describes.  
-
-Four races, all bi-pedal, *Sim*ian in nature.. ten fingers and two limbs.  The link to binary, 10 is 2 in that base conversion, and our modern computing structure is uncanny.  The idea that we may be designed by the *Two of Everything God* to appear to be a perfect computing allusion, is interesting, to say the least.  
+Four races, all bi-pedal, *Sim*ian in nature.. ten fingers and two limbs.  The link to binary, 10 is 2 in that base conversion, and our modern computing structure is uncanny.  The idea that we may be designed by the [*Two of Everything God*](the_light_of_heaven.html) to appear to be a perfect computing allusion, is interesting, to say the least.  
 
 ###Meanwhile were these races actually in existence in reality, there is no *fucking* way that they did not all have a common point of origin... Earth.
 
