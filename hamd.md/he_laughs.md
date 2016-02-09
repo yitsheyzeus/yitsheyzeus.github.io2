@@ -38,7 +38,7 @@ To continue laughing we need to hear a bit about my ex-wife, who is reprentative
 ![](periodic_table_sodium_tile_coaster.jpg) n ![](periodic_table_sodium_tile_coaster.jpg) 
 
 
-The little "n" is short for A.D. the Heart of her name.
+The little "n" is short for A.D. the Heart of her name. This is because ["n" is the 14th letter, and AD is the Fifth element.](im_single.html)  This book might be why.
 
 Another interesting trick of names that links to scripture is that she is also the *Woman clothed in the son* from Revelation, this a simple matter of seeing that Venus, the Goddess of Love, has only half a heart (missing the lo of love)... and no sun (negated by the reverse: nus).
 
