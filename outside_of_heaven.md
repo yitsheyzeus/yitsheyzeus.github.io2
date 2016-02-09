@@ -1,6 +1,6 @@
 # Outside of Heaven
 
-In The Pretty Reckless' song "Absolution" Taylor sings that we are *"outside of Heaven, but I could be wrong."* Personally I think she is wrong, that we are in Heaven as the Lord's prayer (or at least an alternative reading of it) indicates.
+In **The Pretty Reckless'** song "Absolution" Taylor sings that we are *"outside of Heaven, but I could be wrong."* Personally I think she is wrong, that we are in Heaven as the Lord's prayer (or at least an alternative reading of it) indicates.
 
 ```
 Our father ((who is)) art of Heaven
