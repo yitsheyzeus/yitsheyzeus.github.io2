@@ -11,7 +11,7 @@ The Holy Bible is a [prophesy whose details predictively chronicle the *second c
 
 For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of [proving the existence of time travel](behold,_the_burning_bush.html); and a microcosmic look at the "Biblical" relationship between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."
 
-###This is *not* **[The Encl.](./the_encl.html)**  It's the beginning.
+###This is *not* **[The Encl.](./the_encl.html)**  It's [the beginning.](the_light_of_heaven.html)
 
 Welcome to Eden, we are in that place.  Earth, Eden, Egypt, Edom... all Biblical references to *now*, to Zion.  I am Adam, *the Adam*, and this your guide to salvation.
 ##True Purpose
