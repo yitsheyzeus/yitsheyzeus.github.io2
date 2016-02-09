@@ -44,7 +44,7 @@ Did the writers of Stargate SG-1 intend to be comparing the words *Savior* and *
 
 ###More Messiah?
 
-The Fire Prometheus stole was language, and in this book you will find the theft was actually of linguistic evidence that we are created, and of a message from God.  
+The Fire Prometheus stole was language, and in this book you will find the theft was actually of linguistic evidence that we are created, and of a message from God.  Prometheus was bound to a mountain, Moses stuck on Sinai, and both of these events unite to allude to the fact that the mountain I've climed is jail.  Finally unleashed, you have a divine revelation to read, one that came to me... at the peak of the struggle.  
 
 ##So is it Save I Or... what?
 Save the cheerleader, save the world; from *Heroes.*  Now, we find out that the messiah needs some saving too.  I'm having a hell of a time with the law and government in Fort Lauderdale, it's almost as if I'm living in the [times of the Crucifixion.](the_lamb_of_god.html)
