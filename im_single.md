@@ -109,7 +109,12 @@ Like Amish and Iran, this these two names are "pronoun-accusations."  The king a
 {% endif %}
 
 ##Juilius Caesar
+Tying up our list of failed messiahs, we have Julius Caesar.  He rode into Rome's advanced republic and turned it into a dark empire; then the dark ages.  This Empire is one in the same with *Star Wars'* and Palpatine might be reminiscent of Amoz in my rendition of "If you're gone" by * **Match**box* 20.
 
+```
+I thought this place was an ((Emperor))
+Now I'm relaxed, ((it's only me))
+```
 ##Dreaming time in "reverse"
 
 #Ants Marching and the Crown of Thorns
