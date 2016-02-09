@@ -4,7 +4,7 @@ Music talks to me, it's God speaking.  He tells me stories, makes promises, and 
 
 The fire comes back, it's Nero's as he fiddles on the rooftop--Heaven--with our minds.  This historical story is a metaphor for now, for what's going on in the heads of these musicians who are speaking the words of God unknowingly.  The act of doing it--and then explainging that--frees us from one kind of slavery, not knowing it is being done.  The message, another--that we need to see what is going on.  Powers in Heaven are trying to hide its existence, and they are winning.  You don't believe it, not really.  It's there, not watching--but manipulating.  Are they saving everyone... or hiding for a reason?
 
-The fire is burning ...
+The fire is spreading ...
 
 ```
 What am I bidding, for this old ((civilization))
