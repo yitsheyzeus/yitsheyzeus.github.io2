@@ -36,4 +36,4 @@ Clicking on the "chapter" will bring you to the actual book, which is much prett
 
 Doors, For everyone.  
 
-###The story goes that Adam said Jesus couldn't exist, because he would *never rule for a thousand years with an Iron Rod*.  Being born in America, as Queen sings "here we are, born to be Kings" I changed my mind about the rod, when it became a key to the Doors.
+###The story goes that I said Jesus couldn't exist, because he would *never rule for a thousand years with an Iron Rod*.  Being born in America, as Queen sings "here we are, born to be Kings" I changed my mind about the rod, when it became a key to the Doors.
