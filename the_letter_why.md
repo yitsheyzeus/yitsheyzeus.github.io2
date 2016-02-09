@@ -112,4 +112,6 @@ He-man, Darth Vader, Plague and Cat Stevens "power" growing in *Hair.*  Biblical
 
 J or El?  
 
-K right between the Gods.  That K is the key to the Time line of Ecc 9:11, Potassium, which expands to *Person of Time* and the middle of the element links to Chance, Uranus--and Uranium.
+K right between the Gods.  That K is the key to the Time line of Ecc 9:11, Potassium, which expands to *Person of Time* and the middle of the element links to Chance, Uranus--and Uranium.  
+
+There's an entire chapter dedicated to the "ran" of these elements, see The Lamb of God.
