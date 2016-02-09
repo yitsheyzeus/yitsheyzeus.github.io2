@@ -108,4 +108,8 @@ navI   dad
 The hidden connections between languages, specifically Spanish and English through is something that is highlighted repeatedly in what will become obviously an extension of religion.  *The Taming of the Shrew* is an allusion to Span-glish-rew, a combination of Spanish, English, and Hebrew that marks a linguistic key to a prescient and divine hand in the construction of all of our language.  It is the Tower of Babel in reverse, proving that the fire of Prometheus is actually language, and through a number of examples which equate the meaning of a number of like-meaning words, God shows that their connections were known about at the time of the writing of the Torah.  
 
 ##This is the Dawning of the Age of Mars
-He-man, Darth Vader, Plague and Cat Stevens "power" growing in *Hair.*  Biblically links to Samson and Jesus, long hair is pervasive in cartoons and movies that are topically linking Christ to me.  Yitshak ties to Plague, of Hackers, and Exodus (looks like me).  Vader to "Lord Jesus" the "ad" and Adonai, Lord in Hebrew. The Letter He, is the Fifth in Hebrew, and an abbreviation for the name of God; also Prince Adam when he's "Clark Kent."
+He-man, Darth Vader, Plague and Cat Stevens "power" growing in *Hair.*  Biblically links to Samson and Jesus, long hair is pervasive in cartoons and movies that are topically linking Christ to me.  Yitshak ties to Plague, of Hackers, and Exodus (looks like me).  Vader to "Lord Jesus" the "ad" and Adonai, Lord in Hebrew. The Letter He, is the Fifth in Hebrew, and an abbreviation for the name of God; also Prince Adam when he's "Clark Kent."  Kal-El and Jor-El part of a naming scheme decidedly Biblical, 
+
+J or El?  
+
+K right between the Gods.  That K is the key to the Time line of Ecc 9:11, Potassium, which expands to *Person of Time* and the middle of the element links to Chance, Uranus--and Uranium.
