@@ -42,7 +42,9 @@ In Hebrew, that is, and some modern names link science fiction, which is a huge 
 #Hallowed are the *OrI*
 Did the writers of Stargate SG-1 intend to be comparing the words *Savior* and *OrI*, did they know that Christ would come with a message of *fire* saving the Universe from darkness?  Probably, there's lots of scripture about that fact.  Here it is, the religion of fire... about the origin of light.  In SG-1, the OrI's Holy Book was called Oragen, probably after some guy that's famous.  So the origin of Fire?  A unification of Prometheus and Adam... and Moses... and Judah Maccabee.  
 
-More Messiah?
+###More Messiah?
+
+The Fire Prometheus stole was language, and in this book you will find the theft was actually of linguistic evidence that we are created, and of a message from God.  
 
 ##So is it Save I Or... what?
 Save the cheerleader, save the world; from *Heroes.*  Now, we find out that the messiah needs some saving too.  I'm having a hell of a time with the law and government in Fort Lauderdale, it's almost as if I'm living in the [times of the Crucifixion.](the_lamb_of_god.html)
