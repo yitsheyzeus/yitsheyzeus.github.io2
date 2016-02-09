@@ -17,9 +17,9 @@ Welcome to Eden, we are in that place.  Earth, Eden, Egypt, Edom... all Biblical
 
 Edom is a Kingdom with a hidden king, the emperor's clothes have made him *invisible.*
 
-Eden is the land I love, a *den* of Lions, family in the chalice... the Holy Grail, that is Earth.
+Eden is the land I love, a *den* of Lions, family in the chalice... the [Holy Grail, that is Earth.](holy_water,_sang_rael.md)
 
-Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.]()
+Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.md)
 
 ![](1503307_10152194732013420_1589480428_n.jpg)
 ##True Purpose
