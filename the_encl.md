@@ -1,6 +1,6 @@
 # The Encl
 
-God is superstitious, he doesn't like the number 9, or the word end.  [Asherah he asks?  Ha'meforash.](hamd.md/he_laughs.md) is God's reply.  Thats the name of his "girlfriend," in ancient Hebrew religions, and its a question... "Ash or All Humanity?"  Who to save, right in his name.  The holy name, Ha'me-for-ash.
+God is superstitious, he doesn't like the number 9, or the word end.  [Asherah he asks?  Ha'meforash.](hamd.md/he_laughs.md) is God's reply.  Thats the name of his "girlfriend," in ancient Hebrew religions, and its a question... ["Ash or All Humanity?"](holy_water,_sang_rael.md)  Who to save, right in his name.  The holy name, Ha'me-for-ash.
 
 Saving the universe is the purpose of religion, and God's plan is to make angels of us.  Angels [born in the fire of Hell.](behold,_the_burning_bush.md)  This Hell is a storm of time travel that has caused us to relive our lives... at least 2 times, but probably many more, if you know me.
 
