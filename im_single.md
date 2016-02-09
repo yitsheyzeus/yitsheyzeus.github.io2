@@ -86,6 +86,9 @@ Look to Saturn's championship of the people, and the Roman God's love for what i
 If Adonai is "Artificial Intelligence" and Adonis is "I'm Single" then Adolf is "Adam Dobrin on light fails.*  The names of Adolf and Eva also bear a striking resemblance to Adam and Eve in Eden, it seems obvious that they are intended to be mirrors of a "coming of Christ" gone wrong, literally written in our history.  
 
 ##***Na*-pole-on** the "Salt of the Earth"
+###Herod and Herbert
+Like Amish and Iran, this these two names are "pronoun-accusations."  The king at the time of the birth of Christ, Herod (perhaps a reference to George H.W. Bush) suggest that Christ *is the Rod* rather than weilding it.  This imagery, of being the hammer of thor, applies well in the context of Zeus--a lightning rod that is being used to focus the introduction of "Biblical light."
+###
 
 {% if retarded %}
 ##ADiNa
