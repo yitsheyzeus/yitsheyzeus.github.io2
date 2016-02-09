@@ -105,7 +105,7 @@ Like Amish and Iran, this these two names are "pronoun-accusations."  The king a
 ###I will tell you this.  The Iron Rod of Christ is the best thing that we have going.  It's a [prophesy guaranteeing Heaven for everyone.](holy_water,_sang_rael.html)  Let's make that a reality.
 
 ###ADiNa
-This is Nanna's sister in law's first name.  It's remarkable because it includes my initials, and her Salt.  Linked by an "i" which is usually *langolier* for "is".  Elija and Elisha are the key to that revelation.
+This is Nanna's sister in law's first name.  It's remarkable because it includes my initials, [and her Salt.](the_letter_why.html)  Linked by an "i" which is usually *langolier* for "is".  Elija and Elisha are the key to that revelation.
 
 ##Juilius Caesar
 Tying up our list of failed messiahs, we have Julius Caesar.  He rode into Rome's advanced republic and turned it into a dark empire; then the dark ages.  This Empire is one in the same with *Star Wars'* and Palpatine might be reminiscent of Amoz in my rendition of "If you're gone" by * **Match**box* 20.
