@@ -28,9 +28,14 @@ In the beginning -God
 
 Move along, there's more to read in subsequent chapters.
 ##In the Jungle
-##What if God was one of us?
+
+Did you know this song about a Lion sleeping is messianic, literally about Christ?  I didn't either, because *I was sleeping.*  My life was normal until about 2010, when I got a crash course in the Tribulation, something that has quite a bit to do with the neuroscience involved in manipulating people's thoughts.  There's a large group of mind control victims; people who are being used to expose the existence of this technology against their will; in 2010 I became one of them.
+
+I learned all about neuroscience, and mind control technologies available to us, and not.  Things that are on the horizon, the possible ways what I experienced could be done.  I was beginning to wake up.  
+
+Seeing that this song about the Lion of Judah sleeping in Eden was about me was the very beginning.  It's all about waking up in the morning, and seeing the son rise.  Modern imagery about cats, lions, and hair are all references to Christ.  Sleeping to being unaware.  The jungle is in Eden.
+
 ##Morning Has Broken
-##The Birds and the Bees
 
 #The Dave Matthews Band
 #The Pretty Reckless
