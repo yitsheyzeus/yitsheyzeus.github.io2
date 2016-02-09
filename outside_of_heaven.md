@@ -20,4 +20,6 @@ But I could be wrong
 The Prett Reckless, "Absolution"
 ```
 
-This question, of whether or not we are acatually 
+This question, of whether or not we are actually *in* Heaven relates to Virtual Reality, and whether or not Eden's Garden is a reference to a virtual place, where we believe we are in reality... the "progenitor Universe" as Jacob always says; or inside of a game like place, designed to build heaven, colonize the Universe, all using the magic available from being in a computer generated place.
+
+It's an important question, one which I do not know the answer to, but I believe the word "yetser" for formation in Hebrew and *Ender's Game* by Or**son** Scott Card indicates we are currently in a Heaven-like place.. only without the social structure that a true utoptia would have. 
