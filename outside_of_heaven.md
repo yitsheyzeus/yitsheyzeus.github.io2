@@ -45,3 +45,16 @@ Four races, all bi-pedal, *Sim*ian in nature.. ten fingers and two limbs.  The l
 This Point of Origin idea is a reference to Stargate, and these stars are the beginning of understanding that there is a [religion of the sea...](./holy_water,_sang_rael.md) one that revolves around the sea being an allusion to outer space.  Star Trek might be pointing out our hubris, to think we are alone in the Universe, and that everything out there would be just like us.  Imagine there are *aliens* all around you, invisible ones, secretly working to build a new Heaven.  Using us.  This is the premise of what is apocryphally described as the Archons, and bears a striking resemblance to our view of angels and also demons.  
 
 This "religion of the sea" stuff is a reference to an old Nostradamus prophesy, one that contrasts it with the the religion of the Son.  What's it about?  I know.  It's in the chapter about the Holy Grail.
+
+```
+
+Hunger for the great light. Genesis to Revelation.
+
+Nostradamus [X.96] 
+ The Religion of the name of the seas will win out 
+ Against the sect of the son of “Adaluncatif”: 
+ The stubborn, lamented sect will be afraid of the two wounded by A and A.
+
+```
+
+Adaluncatif is “English,” Adam un-cat-if. It’s a messiah reference, the undying lion with infite lives.  L and M are also big letters for the *M*essiah.
