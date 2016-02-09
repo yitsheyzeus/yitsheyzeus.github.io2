@@ -10,7 +10,7 @@ Vine and tree references, like *The Tree of Knowledge* and *The Tree of Life* ar
 ###d = c + l, our glyphs, the letters of the Latin alphabet contain hidden messages.
 This one is special, because it explains the domain that this book is located at, www.lamc.la.  I've broken the code, and the Greek letter Lamda, which is part of an "N."  It's an N to darkness, and an awakening to seeing that our languages, and letters, are designed with intelligent and hidden meaning.  Like ancient Heiroglyphs, our letters teach a path... and the N is the [*new J*.](the_tower_of_babel.md)
 
-**What goes up, must come down** says Isaac, New to N, and this historical story parallels Eden, and the rise and fall of Adam.  And humanity.  Back up, the new N says, once we've hit rock bottom.. I mean, "reality."
+**What goes up, must come down** says Isaac, New to N, and this historical [story parallels Eden, and the rise and fall of Adam. ](http://www.whenistheapocalypse.com/the-modern-fall-of-man) And humanity.  Back up, the new N says, once we've hit rock bottom.. I mean, "reality."
 
 ###J is for going back in time, and bringing everyone to Heaven.
 On the coordinate plane, the one explained by Yeast, and Jesus, place a J right in the middle, and it's a map... one that explains how to get to salvation, if you are "Us,"  I mean J is Us, Jesus.  We might be right in the middle of that J, right before the curve towards Heaven.
