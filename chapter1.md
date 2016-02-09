@@ -39,4 +39,6 @@ In 1984 George Orwell got a redux of his book written three decades earlier in A
 In Hebrew, that is, and some modern names link science fiction, which is a huge part of real religion, the continued communication from above that is teaching us about things from the future.  Orson Wells and Orson Scott Card are good examples of modern tags in names.  The Hebrew name for the Book of Exodus happens to be "Names," and I often use this phrase to describe the Revelation at hand:
 ###We are *in Exodus*.
 
+#Hallowed are the OrI
+Did the writers of Stargate SG-1 intend to be comparing the words *Savior* and *OrI*, did they know that Christ would come with a message of *fire* saving the Universe from darkness?  Probably, there's lots of scripture about that fact.  Here it is, the religion of fire... about the origin of light.  In SG-1, the OrI's Holy Book was called Oragen, probably after some guy that's famous.
 
