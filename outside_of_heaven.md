@@ -4,7 +4,7 @@ In The Pretty Reckless' song "Absolution" Taylor sings that we are *"outside of 
 
 ```
 Our father ((who is)) art of Heaven
-Hallowed be ((my)) name
+((Hidden)) be ((my)) name
 ((My Eden)) come
 On Earth as it is in Heaven.
 
