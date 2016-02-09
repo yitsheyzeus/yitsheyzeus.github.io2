@@ -57,4 +57,4 @@ Nostradamus [X.96]
 
 ```
 
-Adaluncatif is “English,” Adam un-cat-if. It’s a messiah reference, the undying lion with infite lives.  L and M are also big letters for the *M*essiah.
+Adaluncatif is “English,” Adam un-cat-if. It’s a messiah reference, the undying lion with infite lives.  L and M are also big letters for the *M*essiah.  Nostradamus name includes "Adam," "art" in reverse, and Nos... for we.  Adam might be us, we might not be at, and ... this prophesy is very related to the apocalypse,
