@@ -65,7 +65,7 @@ R.E.M. sings about feeling fine, but I am anything but.  In case you are wonderi
 ##and the Word was with God
 I must be alluding to something with these references to John 1:1, and, [believe it--more than a psuedo-superstitious aversion to the word "end." 9's](the_encl.html) and the letter "I" be damned, I'm going to tell you:
 
-###[*the word* is fire.](chapter1.md)
+###[*The Word* is fire.](chapter1.md)
 
 It's not just in this somewhat well known John verse, it's also in Matthew 3:11, where it heralds the second coming of Jesus Christ.  Moe than anything, this fire begins all the way back in the Book of Exodus.  It's the one witnessed by Moses, the final character in my "Messianic short list."
 
