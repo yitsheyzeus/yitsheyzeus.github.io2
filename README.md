@@ -27,11 +27,12 @@ Egypt is the place we are in, where you don't know me, hidden by the Plague of D
 
 Judaism has a concept of God having 72 names; it turns out he's nearly everyone in the Bible; a metaphorical explanation of just how he feels:  that he's nearly everyone.  I know we don't feel the same way, it's a matter of perspective.  The Bible explains it by linking many of the characters and their stories to me.  Jeremiah was jailed, Joseph enslaved, Job and Jesus tried (although differently).  The sign of the son links 7 more from the planets Mercury... the Messenger like Mohammed, to the Gods of War, Light-ning, Time, and Heaven.  He is Samson for his hair, and [courtoom battle in Judges--a link to a real court in Florida.](the_lamb_of_god.html)  [Nero for his fire and music,](music_saves_all_souls.html) [Caesar for "vini vidi vici," Napoleon, Popeye, He-man, and me.](im_single.html)
 
+[I am Isaac, laughing..](hamd.md/he_laughs,again.html) that's what his name means, in Hebrew. It's a special prelude to knowing the constructor of that language (God) knew English first. The laughter is over the fact that the [Crucifixion is a burning from Heaven, on an alatar of American Justice.](the_lamb_of_god.html)  Behold, I was dead, and now am alive... forevermore.
+
+
 Ha, Ra, Ka, and Ba.  You'd be surprised how much religion is in those 8 letters.  What they say about the link between Isaac the sun, the son, and the Father.  All these things I will explain, in detail.  They are part of my mythology, it blends Egyptian lore with Greek myth, Islam with Christianity and Judaism, and all of this with cartoons and science.  This isn't about a new religion, it's about showing us that all religion is telling us a story--a single story--one we haven't seen before.  It all ties together around *the light of the world* the son is the sun for a day.
 
 In that day we see that all of religion and all of history and all of everything around us is designed to do something miraculous.  To be revealed, and show us how important we are.  It's all about us, and all about now, and how we move forward with the news and tools that we will find have truly come to us from above with divine purpose.  It's about building Heaven.
-
-[I am Isaac, laughing..](hamd.md/he_laughs,again.html) that's what his name means, in Hebrew. It's a special prelude to knowing the constructor of that language (God) knew English first. The laughter is over the fact that the [Crucifixion is a burning from Heaven, on an alatar of American Justice.](the_lamb_of_god.html)  Behold, I was dead, and now am alive... forevermore.
 
 ##True Purpose
 The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a [mask for technology](the_encl.html) and a means to oppress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
