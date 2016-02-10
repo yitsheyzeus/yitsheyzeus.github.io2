@@ -52,7 +52,7 @@ And then all the peoples of the earth will mourn when
 they see the Son of Man coming on the clouds of heaven, 
 with power and great glory.
 
-But about that day or hour no one knows, not even the angels 
+But about that day or hour no one ((knew)), not even the angels 
 in heaven, nor the Son, but only the Father.  
 
 As it was in the days of Noah, so it will be at the 
