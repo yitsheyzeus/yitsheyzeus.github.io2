@@ -54,7 +54,7 @@ The names "Adam and Eve" have a meaning related to this cycle.  After Dark it is
 ###Son Rise, I am the Light of the Word
 The idea that the sun and son are one is something we can only see clearly in English.  In other languages these words are very different.  It's something like *putting English on the ball*, realizing that ancient religion was created with foreknowledge of modern words.  These examples are how we know it's all about now, this time, 2016.  It is this idea, that the son and sun are one that unifies the Egyptian gods of Ra and Horus (see the Ka) under the auspices of Isaac, who can see with both eyes.  Ra and Horus each have one of the "All Seeing Eyes," the symbols of ancient Egypt we associate with the Illuminati.
 
-Be illuminated, the light of the world is the [day star, Sol](the_letter_why.html) lit by words, day backwards is yad--the Hebrew word for Hand--of God.
+Be illuminated, the light of the world is the [day star, Sol](the_letter_why.html) lit by words, day backwards is yad--the Hebrew word for Hand--of God.  Adam and Eve together, the bright morning star of Venus converts to the sun.  
 
 
 
