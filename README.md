@@ -36,6 +36,8 @@ Freedom is a fundamental right that all people deserve, we also deserve safety, 
 
 There is a huge amount of hidden information in religion, and what I take away from that is a call for a serious focus on increasing transparency--not a little but a lot.  Much of the "hidden information" is about me, to put the focus on me so that we can receive the rest of the message "with authority."  I don't want to tell people what to think, I have seen this plan, and I agree with its message and goals.  I want to show you how to find the message for yourself, so you can decide what you think.  
 
+Ending secrecy, censorship, and lies are a major focus of what I see in the secret message.  To me, it's sort of a "what not to do," or lead by wrong-example.  There are a number of instances where this should be obvious, like Judges and Genesis 19.  
+
 I said it came from the sea, and from above; we will find it in our *modern mythology* in music and movies--our art.  A huge part of our culture links to the Bible, this might sound obvious but what I am trying to explain is that we don't realize this is a result of *divine intervention.*  
 
 ###72 names of God
