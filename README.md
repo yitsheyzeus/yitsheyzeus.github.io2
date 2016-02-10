@@ -24,7 +24,8 @@ Egypt is the place we are in, where you don't know me, hidden by the Plague of D
 ![](1503307_10152194732013420_1589480428_n.jpg)
 
 #Your Religion
-You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance 
+You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and *Nashian* decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.
+
 ###72 names of God
 
 Judaism has a concept of God having 72 names; it turns out he's nearly everyone in the Bible; a metaphorical explanation of just how he feels:  that he's nearly everyone.  I know we don't feel the same way, it's a matter of perspective.  The Bible explains it by linking many of the characters and their stories to me.  Jeremiah was jailed, Joseph enslaved, Job and Jesus tried (although differently).  The sign of the son links 7 more from the planets Mercury... the Messenger like Mohammed, to the Gods of War, Light-ning, Time, and Heaven.  He is Samson for his hair, and [courtoom battle in Judges--a link to a real court in Florida.](the_lamb_of_god.html#ISA)  [Nero for his fire and music,](music_saves_all_souls.html) [Caesar for "vini vidi vici," Napoleon, Popeye, He-man, and me.](im_single.html)
