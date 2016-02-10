@@ -64,7 +64,7 @@ Adaluncatif is “English,” Adam un-cat-if. It’s a messiah reference, the un
 
 [The two wounded by A and A is a reference to 9/11 and the two WTC towers.  A&A, American Airlines, go figure.](chapter1.md)
 
-##On the Tau'ri, and Alpha Centauri
+##On the Tau'ri, and Alpha Cen**tauri**
 
 ```
 "You are the Fifth Race. Your role is clear. If there is 
