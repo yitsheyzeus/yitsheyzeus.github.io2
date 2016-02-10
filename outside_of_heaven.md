@@ -63,3 +63,13 @@ Nostradamus [X.96]
 Adaluncatif is “English,” Adam un-cat-if. It’s a messiah reference, the undying lion with infite lives.  L and M are also big letters for the *M*essiah.  Nostradamus name includes "Adam," "art" in reverse, and Nos... for we.  Adam might be us, we might not be at, and ... this prophesy is very related to the apocalypse.
 
 [The two wounded by A and A is a reference to 9/11 and the two WTC towers.  A&A, American Airlines, go figure.](chapter1.md)
+
+##On the Tau'ri, and Alpha Centauri
+
+```
+"You are the Fifth Race. Your role is clear. If there is 
+any hope in preserving the future, it lies with you and your
+people." 
+
+        —Thor, Stargate SG-1 
+```
