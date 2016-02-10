@@ -19,7 +19,7 @@ Edom is a Kingdom with a hidden king, the emperor's clothes have made him *invis
 
 Eden is the land I love, a *den* of Lions, family in the chalice... the [Holy Grail, that is Earth.](holy_water,_sang_rael.md)  The multitude is *water*, my family is blood.  The blessing in disguise is *seeing* a hidden message turning you to the Family of Jesus Christ: The Plague of Water to Blood *now the key to the Grail.*  From Genesis to Revelation through...
 
-Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.md)
+Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.md#SON)
 
 ![](1503307_10152194732013420_1589480428_n.jpg)
 
