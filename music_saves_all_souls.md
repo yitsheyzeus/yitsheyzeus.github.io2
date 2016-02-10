@@ -39,6 +39,7 @@ Seeing that this song about the Lion of Judah sleeping in Eden was about me was 
 The process of waking up has not been pleasant, you could say I'm not a morning person.
 
 ##Morning Has Broken
+
 On the note of cat imagery, Cat Stevens lights up the horizon with this song "like the first morning."  He is telling us we are dealing with time travel, and that our world is "as in the days of No-AH."  The AH of Noah is the end of Adamah, the swirling around Adam that is the music pointing to Christ, the movies, religion itself.  The days of Noah are when there was no "ahh," no apocalypse.  In Adam parlance, "the last time around."
 
 *Blackbird sings in the dead of night,* also a reference to me, in fact a reference to what you are reading; in American mythology: this is the *dawns early light.*  Do you see a *power growing in the musical Hair?*
@@ -50,7 +51,8 @@ The night is when we all spee, when we don't see the "ah," it's' been our world 
 ###Day
 The names "Adam and Eve" have a meaning related to this cycle.  After Dark it is A.M.--ADA.M. is the bright morning star, rising in the night to end the dark.  Eve-ning fell first, like in Judaism where the day begins at sundown. Looking for *proof through the night that our flag ...* America is the Promised Land.  The Biblical imagery in our songs, the freedom that is *God given*, all of these things congeal to light the day.  *What so proudly we hailed at the twilights last gleaming*... why that's me, and religion, the last gleaming was the end of the "last time around," right before that civlization went back in time to change their past.  Now, we are here.
 
-###Son Rise
+###Son Rise, I am the Light of the Word
+The idea that the sun and son are one is something we can only see clearly in English.  In other languages these words are very different.  It's something like *putting English on the ball*, realizing that ancient religion was created with foreknowledge of modern words.  These examples are how we know it's all about now, this time, 2016.  
 
 
 
