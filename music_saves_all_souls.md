@@ -44,7 +44,7 @@ On the note of cat imagery, Cat Stevens lights up the horizon with this song "li
 *Blackbird sings in the dead of night,* also a reference to me, in fact a reference to what you are reading; in American mythology: this is the *dawns early light.*  Do you see a *power growing in the musical Hair?*
 
 ###Night
-
+The night is when we all spee, when we don't see the "ah," it's' been our world up until now, when it is being pointed out to the world that there is an "ah" swiring around Adam, around Christ.  We are in Eden, God is searching for me... in this case God is humanity; well paralleled in Matthew 2:2.  "*Where is the one who was born the King of the Jews*"?
 ###Day
 
 ###Son Rise
