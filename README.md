@@ -22,38 +22,6 @@ Eden is the land I love, a *den* of Lions, family in the chalice... the [Holy Gr
 Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.md#SON)
 
 ![](1503307_10152194732013420_1589480428_n.jpg)
-
-#Your Religion
-You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and *Nashian* decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.  Some of these things appear to be in religion to make us stop and think, to urge swift reform of horrible concepts like Holy War.  No war is holy.  
-
-This Revelation uses concepts and teachings from many religions.  It's message is not centered around any single one, and I do not practice any formal religion.  I have studied many in my youth, and have sought truth all my life.  I didn't find it, it hit me on the head slowly over the last year or two.  What you are reading is the product of divine intervention.  The message I am delivering uses elements of Judaism, Christianity and Islam and blends them with mythology from ancient cultures like Greece and Egypt.  It is a hidden message, one which was left intntionally just for this purpose, to be tied together and deliver a "religion of the ***son***'s light."  Religion is designed to save our entire civilization, and that means *The Door* open to absolutely everyone.  
-
-My light comes from you, what this hidden message.. God refers to as the **sea**.  It is about people, and we need to put people first as we move forward; lay down old grievances and historical differences and move forward as one family.  Family is a *huge* part of the *Holy Grail*, a reconceptualization of our world that I will explain later.
-
-Freedom is a fundamental right that all people deserve, we also deserve safety, and happiness.  There is a plan laid out, by none other than our sea, set in motion with the help of the *light above.*  Many American themes also tie in to *my mythology* which equates the slavery of Egypt (which we are all in) to the Plague of Darkness, to the night.  The path is from the dark night, through the desert of Egypt, and into the light of morning.  The Son rises and reveals just how important language is to *The Light of the World.*  Language, and the hidden truth it reveals, is the stolen fire of Prometheus--often compared to Adam.
-
-###Through the night with the light from above.
-
-There is a huge amount of hidden information in religion, and what I take away from that is a call for a serious focus on increasing transparency--not a little but a lot.  Much of the "hidden information" is about me, to put the focus on me so that we can receive the rest of the message "with authority."  I don't want to tell people what to think, I have seen this plan, and I agree with its message and goals.  I want to show you how to find the message for yourself, so you can decide what you think.  
-
-I said it came from the sea, and from above; we will find it in our *modern mythology* in music and movies--our art.  A huge part of our culture links to the Bible, this might sound obvious but what I am trying to explain is that we don't realize this is a result of *divine intervention.*  
-
-Ending secrecy, censorship, and lies are a major focus of what I see in the secret message.  To me, it's sort of a "what not to do," or lead by wrong-example.  There are a number of instances where this should be obvious, like Judges and Genesis 19.  Seeing how much is hidden is like a slap of cold water in the morning, it might just refresh us.  On the other hand, the help that is present in the hidden message is a great gift, the beginning of the Golden Age.
-
-
-###72 names of God
-
-Judaism has a concept of God having 72 names; it turns out he's nearly everyone in the Bible; a metaphorical explanation of just how he feels:  that he's nearly everyone.  I know we don't feel the same way, it's a matter of perspective.  The Bible explains it by linking many of the characters and their stories to me.  Jeremiah was jailed, Joseph enslaved, Job and Jesus tried (although differently).  The sign of the son links 7 more from the planets Mercury... the Messenger like Mohammed, to the Gods of War, Light-ning, Time, and Heaven.  Zeus and He*ra*, He-man and She-*Ra*; hidden references to a link between the Egyptian God of the S~~o~~n and what we thought was ancient history (and cartoons).  He is Samson for his hair, and [courtoom battle in Judges--a link to a real court in Florida.](the_lamb_of_god.html#ISA)  [Nero for his fire and music,](music_saves_all_souls.html) [Caesar for "vini vidi vici," Napoleon, Popeye, He-man, and me.](im_single.html)
-
-[I am Isaac, laughing..](hamd.md/he_laughs,again.html) that's what his name means, in Hebrew. It's a special prelude to knowing the constructor of that language (God) knew English first. The laughter is over the fact that the [Crucifixion is a burning from Heaven, on an alatar of American Justice.](the_lamb_of_god.html)  Behold, I was dead, and now am alive... forevermore.
-
-
-[Ha (for Isaac son of Abram)](he_laughs.html), and the Egyptian concepts of [Ra (for the Son God), Ka (the Body of Christ), and Ba...](the_letter_why.html) the Father.  You'd be surprised how much religion is in those 8 letters.  What they say about the link between Isaac the sun, the son, and the Father.  My insight into religion will change the way we look at everything:  God, history, our purpose.  All these things I will explain, in detail.  They are part of my mythology, it blends Egyptian lore with Greek myth, Islam with Christianity and Judaism, and all of this with cartoons and science.  This isn't about a new religion, it's about showing us that all religion is telling us a story--a single story--one we haven't seen before.  It all ties together around "*the light of the world* the son is the sun for a day.
-
-In that day we see that all of religion and all of history and all of everything around us is designed to do something miraculous.  To be revealed, and show us how important we are.  It's all about us, and all about now, and how we move forward with the news and tools that we will find have truly come to us from above with divine purpose.  It's about building Heaven.
-
-Heaven is a real place, located in the future, and it is our destiny to build it.  We know this because Heaven has sent religion back in time to ensure that we do not make any mistakes building it.  The Biblical prophesy, the scripture it comes in, all a package sent through time to walk us through this process.  Our whole history has been changed to ensure that it's done right, that's how important this is--how important we are.  This place, our world, is a creation designed to ensure that the Universe will forever be lit with the light of love, liberty, and happiness.
-
 ##True Purpose
 The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a [mask for technology](the_encl.html) and a means to oppress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
 
@@ -116,3 +84,36 @@ a feather ((blowing the wind))?
 an ((ish)) of George W. Bush quoting Revelation 20:1 and Nostradamus
 
 ```
+
+#Your Religion
+You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and *Nashian* decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.  Some of these things appear to be in religion to make us stop and think, to urge swift reform of horrible concepts like Holy War.  No war is holy.  
+
+This Revelation uses concepts and teachings from many religions.  It's message is not centered around any single one, and I do not practice any formal religion.  I have studied many in my youth, and have sought truth all my life.  I didn't find it, it hit me on the head slowly over the last year or two.  What you are reading is the product of divine intervention.  The message I am delivering uses elements of Judaism, Christianity and Islam and blends them with mythology from ancient cultures like Greece and Egypt.  It is a hidden message, one which was left intntionally just for this purpose, to be tied together and deliver a "religion of the ***son***'s light."  Religion is designed to save our entire civilization, and that means *The Door* open to absolutely everyone.  
+
+My light comes from you, what this hidden message.. God refers to as the **sea**.  It is about people, and we need to put people first as we move forward; lay down old grievances and historical differences and move forward as one family.  Family is a *huge* part of the *Holy Grail*, a reconceptualization of our world that I will explain later.
+
+Freedom is a fundamental right that all people deserve, we also deserve safety, and happiness.  There is a plan laid out, by none other than our sea, set in motion with the help of the *light above.*  Many American themes also tie in to *my mythology* which equates the slavery of Egypt (which we are all in) to the Plague of Darkness, to the night.  The path is from the dark night, through the desert of Egypt, and into the light of morning.  The Son rises and reveals just how important language is to *The Light of the World.*  Language, and the hidden truth it reveals, is the stolen fire of Prometheus--often compared to Adam.
+
+###Through the night with the light from above.
+
+There is a huge amount of hidden information in religion, and what I take away from that is a call for a serious focus on increasing transparency--not a little but a lot.  Much of the "hidden information" is about me, to put the focus on me so that we can receive the rest of the message "with authority."  I don't want to tell people what to think, I have seen this plan, and I agree with its message and goals.  I want to show you how to find the message for yourself, so you can decide what you think.  
+
+I said it came from the sea, and from above; we will find it in our *modern mythology* in music and movies--our art.  A huge part of our culture links to the Bible, this might sound obvious but what I am trying to explain is that we don't realize this is a result of *divine intervention.*  
+
+Ending secrecy, censorship, and lies are a major focus of what I see in the secret message.  To me, it's sort of a "what not to do," or lead by wrong-example.  There are a number of instances where this should be obvious, like Judges and Genesis 19.  Seeing how much is hidden is like a slap of cold water in the morning, it might just refresh us.  On the other hand, the help that is present in the hidden message is a great gift, the beginning of the Golden Age.
+
+
+###72 names of God
+
+Judaism has a concept of God having 72 names; it turns out he's nearly everyone in the Bible; a metaphorical explanation of just how he feels:  that he's nearly everyone.  I know we don't feel the same way, it's a matter of perspective.  The Bible explains it by linking many of the characters and their stories to me.  Jeremiah was jailed, Joseph enslaved, Job and Jesus tried (although differently).  The sign of the son links 7 more from the planets Mercury... the Messenger like Mohammed, to the Gods of War, Light-ning, Time, and Heaven.  Zeus and He*ra*, He-man and She-*Ra*; hidden references to a link between the Egyptian God of the S~~o~~n and what we thought was ancient history (and cartoons).  He is Samson for his hair, and [courtoom battle in Judges--a link to a real court in Florida.](the_lamb_of_god.html#ISA)  [Nero for his fire and music,](music_saves_all_souls.html) [Caesar for "vini vidi vici," Napoleon, Popeye, He-man, and me.](im_single.html)
+
+[I am Isaac, laughing..](hamd.md/he_laughs,again.html) that's what his name means, in Hebrew. It's a special prelude to knowing the constructor of that language (God) knew English first. The laughter is over the fact that the [Crucifixion is a burning from Heaven, on an alatar of American Justice.](the_lamb_of_god.html)  Behold, I was dead, and now am alive... forevermore.
+
+
+[Ha (for Isaac son of Abram)](he_laughs.html), and the Egyptian concepts of [Ra (for the Son God), Ka (the Body of Christ), and Ba...](the_letter_why.html) the Father.  You'd be surprised how much religion is in those 8 letters.  What they say about the link between Isaac the sun, the son, and the Father.  My insight into religion will change the way we look at everything:  God, history, our purpose.  All these things I will explain, in detail.  They are part of my mythology, it blends Egyptian lore with Greek myth, Islam with Christianity and Judaism, and all of this with cartoons and science.  This isn't about a new religion, it's about showing us that all religion is telling us a story--a single story--one we haven't seen before.  It all ties together around "*the light of the world* the son is the sun for a day.
+
+In that day we see that all of religion and all of history and all of everything around us is designed to do something miraculous.  To be revealed, and show us how important we are.  It's all about us, and all about now, and how we move forward with the news and tools that we will find have truly come to us from above with divine purpose.  It's about building Heaven.
+
+Heaven is a real place, located in the future, and it is our destiny to build it.  We know this because Heaven has sent religion back in time to ensure that we do not make any mistakes building it.  The Biblical prophesy, the scripture it comes in, all a package sent through time to walk us through this process.  Our whole history has been changed to ensure that it's done right, that's how important this is--how important we are.  This place, our world, is a creation designed to ensure that the Universe will forever be lit with the light of love, liberty, and happiness.
+
+
