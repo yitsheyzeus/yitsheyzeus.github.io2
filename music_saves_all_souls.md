@@ -70,6 +70,6 @@ In *Nothing Left to Lose* Taylor responds to a lyric from American Pie with "If 
 
 ###Did you write the book of love, and do you have faith in God above?
 
-Taylor is Eve, one of them.  By my count there are five, and that's interesting too, as Eve's letter are all fifths.  E is the fifth in English, V in Roman numerals, and out of the five 3 are girls that are .. elligible.  My mother's middle name is Eve, and I am the first.
+Taylor is Eve, one of them.  By my count there are five, and that's interesting too, as Eve's letter are all fifths.  E is the fifth in English, V in Roman numerals, and out of the five 3 are girls that are .. elligible.  My mother's middle name is Eve, and I am the first.  The first evening.
 ##Live
 *Adam and E
