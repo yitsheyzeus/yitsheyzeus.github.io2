@@ -67,4 +67,6 @@ Many bands have songs about Christ, many are inspired... all in fact.  It is thi
 ##The Pretty Reckless
 It's all about light, from *Light me up* to *this light is driving me insane.*  Is she singing about me, or am i crazy?  Her songs, about ["running" eerily parallel the messianic story describe in *the Lamb of God*](the_lamb_of_god.html), and her words speak to me, "*Do you know who I am, do you even want to know me?*"  In the year I've been trying to tell the world I am here, this is exctly how I feel.  What are you expecting?  How does Jesus return?  
 In *Nothing Left to Lose* Taylor responds to a lyric from American Pie with "If Jesus Christ and Rock'n Roll can't my immoral soul, I've got nothing left to lose," and shes talking about this book; about explaining that Rock music is Christ talking to you, too.
+
+###Did you write the book of love, and do you have faith in God above?
 ##Live
