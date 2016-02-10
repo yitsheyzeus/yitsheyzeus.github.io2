@@ -24,7 +24,13 @@ Egypt is the place we are in, where you don't know me, hidden by the Plague of D
 ![](1503307_10152194732013420_1589480428_n.jpg)
 
 #Your Religion
-You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and *Nashian* decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.  Some of these things appear to be in religion to make us stop and think, to urge swift reform of horrible concepts like Holy War.  No war is holy.
+You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and *Nashian* decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.  Some of these things appear to be in religion to make us stop and think, to urge swift reform of horrible concepts like Holy War.  No war is holy.  
+
+This Revelation uses concepts and teachings from many religions.  It's message is not centered around any single one, and I do not practice any formal religion.  I have studied many in my youth, and have sought truth all my life.  I didn't find it, it hit me on the head slowly over the last year or two.  What you are reading is the product of divine intervention.  The message I am delivering uses elements of Judaism, Christianity and Islam and blends them with mythology from ancient cultures like Greece and Egypt.  It is a hidden message, one which was left intntionally just for this purpose, to be tied together and deliver a "religion of the ***son***'s light."  Religion is designed to save our entire civilization, and that means *The Door* open to absolutely everyone.  
+
+My light comes from you, what this hidden message.. God refers to as the **sea**.  It is about people, and we need to put people first as we move forward; lay down old grievances and historical 
+
+
 
 ###72 names of God
 
