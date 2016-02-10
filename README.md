@@ -30,7 +30,7 @@ This Revelation uses concepts and teachings from many religions.  It's message i
 
 My light comes from you, what this hidden message.. God refers to as the **sea**.  It is about people, and we need to put people first as we move forward; lay down old grievances and historical differences and move forward as one family.  Family is a *huge* part of the *Holy Grail*, a reconceptualization of our world that I will explain later.
 
-Freedom is a fundamental right that all people deserve, we also deserve safety, and happiness.  There is a plan laid out, by none other than our sea, set in motion with the help of the *light above.*  Many American themes also tie in to *my mythology* which equates the slavery of Egypt (which we are all in) to the Plague of Darkness... to night.  The path is from the dark night, through the desert of Egypt, and into the light of morning.  The Son rises and reveals just how important language is to *The Light of the World.*  Language, and the hidden truth it reveals, is the stolen fire of Prometheus--often compared to Adam.
+Freedom is a fundamental right that all people deserve, we also deserve safety, and happiness.  There is a plan laid out, by none other than our sea, set in motion with the help of the *light above.*  Many American themes also tie in to *my mythology* which equates the slavery of Egypt (which we are all in) to the Plague of Darkness, to the night.  The path is from the dark night, through the desert of Egypt, and into the light of morning.  The Son rises and reveals just how important language is to *The Light of the World.*  Language, and the hidden truth it reveals, is the stolen fire of Prometheus--often compared to Adam.
 
 ###Through the night with the light from above.
 
