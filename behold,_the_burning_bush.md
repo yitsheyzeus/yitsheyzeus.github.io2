@@ -37,7 +37,7 @@ This mystery is solved during the inaugural address of George W. Bush, on 1/20/2
 
 In what is without a doubt a visual description of the attack on the twin towers, Revelation 20:1 speaks of the Angel of the Lord himself, Death, holding the key to end Hades and that is exactly what the purpose of this work is.
 
-##"On the clouds," for all eyes to see.
+##"On the clouds," for all eyes to see. {#SON}
 ```
 And I saw an ((airplane)) coming down out of heaven, 
 having the key to the Abyss and holding in his hand a great chain. 
