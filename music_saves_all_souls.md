@@ -46,7 +46,7 @@ On the note of cat imagery, Cat Stevens lights up the horizon with this song "li
 ###Night
 The night is when we all spee, when we don't see the "ah," it's' been our world up until now, when it is being pointed out to the world that there is an "ah" swiring around Adam, around Christ.  We are in Eden, God is searching for me... in this case God is humanity; well paralleled in Matthew 2:2.  "*Where is the one who was born the King of the Jews*"?
 
-*Through the night, with the light from above*, the Egyptian Plague of Darkness is all around us.  It is overtly keeping us from seeing this message, by using disbelief, and acctive measures like a censorswall.  Censorship in America; and nobody knows... this is the Darkness.  It is the Wallof Jericho, and it is about to fall.
+*Through the night, with the light from above*, the Egyptian Plague of Darkness is all around us.  It is overtly keeping us from seeing this message, by using disbelief, and acctive measures like a censorswall.  Censorship in America; and nobody knows... this is the Darkness.  It is the Wallof Jericho, and it is about to fall.  Like Berlin before it, this wall is being torn down--in this case by the torches that are an e-mail campaign, social media, and the writing you are reading which points out clearly how to see in the dark.  Once enough do, we have the base we will need to stop this from ever happening again.   And the knowledge, this is God's plan; to highlight serious social problems, like a palpable lack of freedom of speech and communication, so that we can stop this type of hidden slavery.  
 ###Day
 
 ###Son Rise
