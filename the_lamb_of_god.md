@@ -164,10 +164,12 @@ The Pretty Reckless, Heaven Knows & ((ish))
 
 Between my "pockets full of high" and the "hidden links" between the Lamb, Superman, and Kryptonite... I hope it is becoming clear that this story is woven through time.  I hear Jim Morrison singing to Taylor, begging on my behalf for help breaking the darkness and *setting the night on fire.*
 
-These are the words of God.  
+These are words of God.  
 
 ##If I go crazy, *will you still call me Superman?*
 *Kryptonite* by 3 Doors Down singing about the foregone conclusion of this story, a finding by all of humanity that Jesus existing is simply insanse.  Seriously, that's what you think--on the surface, deep down, and all around.  This song, along with "The truth will set you free," were a big part of my decision not to hide who I am in court.  Not to mention, I had to get the message out, to be noticed--for you.
+
+All of these songs, Two Princes, Heaven Knows, and Kryptonite unite to tell a story about me.  All of them were written prior to the events they discuss, and all of them 
 
 ```
 Ah keep your eyes on the road,
