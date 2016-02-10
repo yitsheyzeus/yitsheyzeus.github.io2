@@ -28,7 +28,7 @@ You probably want to know what I think about *your religion.*  I think *all reli
 
 This Revelation uses concepts and teachings from many religions.  It's message is not centered around any single one, and I do not practice any formal religion.  I have studied many in my youth, and have sought truth all my life.  I didn't find it, it hit me on the head slowly over the last year or two.  What you are reading is the product of divine intervention.  The message I am delivering uses elements of Judaism, Christianity and Islam and blends them with mythology from ancient cultures like Greece and Egypt.  It is a hidden message, one which was left intntionally just for this purpose, to be tied together and deliver a "religion of the ***son***'s light."  Religion is designed to save our entire civilization, and that means *The Door* open to absolutely everyone.  
 
-My light comes from you, what this hidden message.. God refers to as the **sea**.  It is about people, and we need to put people first as we move forward; lay down old grievances and historical 
+My light comes from you, what this hidden message.. God refers to as the **sea**.  It is about people, and we need to put people first as we move forward; lay down old grievances and historical differences and move forward as one family.  Family is a *huge* part of the *Holy Grail*, a reconceptualization of our world that I will explain later.
 
 
 
