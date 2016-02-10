@@ -34,6 +34,7 @@ Freedom is a fundamental right that all people deserve, we also deserve safety, 
 
 ###Through the night with the light from above.
 
+There is a huge amount of hidden information in religion, and what I take away from that is a call for a serious focus on increasing transparency--not a little but a lot.  
 
 ###72 names of God
 
