@@ -167,7 +167,7 @@ Between my "pockets full of high" and the "hidden links" between the Lamb, Super
 These are the words of God.  
 
 ##If I go crazy, *will you still call me Superman?*
-Kryptonite, singing about the foregone conclusion of this story, a finding by all of humanity that Jesus existing is simply insanse.  Seriously, that's what you think--on the surface, deep down, and all around.  
+Kryptonite, singing about the foregone conclusion of this story, a finding by all of humanity that Jesus existing is simply insanse.  Seriously, that's what you think--on the surface, deep down, and all around.  This song, along with "The truth will set you free," were a big part of my decision not to hide who I am in court.  Not to mention, I had to get the message out, to be noticed--for you.
 
 ```
 Ah keep your eyes on the road,
