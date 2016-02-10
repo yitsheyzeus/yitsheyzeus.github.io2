@@ -60,7 +60,7 @@ Be illuminated, the light of the world is the [day star, Sol](the_letter_why.htm
 
 
 #Modern Prophesy in Music
-Many bands have songs about Christ, many are inspired... all in fact.  It is this knoweldge, taht we are all secretly being inspired by God that tells me that the Ba of Horus, the Egyptian version of the Holy Spirit is upon us all.  United in "Ha," the two letters associated with Isaac and Abra*ha*m.  That son's name means... *he laughs*.
+Many bands have songs about Christ, many are inspired... all in fact.  It is this knoweldge, taht we are all secretly being inspired by God that tells me that the Ba of Horus, the Egyptian version of the Holy Spirit is upon us all.  United in "Ha," the two letters associated with [Isaac and Abra*ha*m.](he_laughs.html)  That son's name means... *he laughs*.
 ##The Dave Matthews Band
 *This is the last stop*, 
 
