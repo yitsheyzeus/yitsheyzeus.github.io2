@@ -48,7 +48,7 @@ The night is when we all spee, when we don't see the "ah," it's' been our world 
 
 *Through the night, with the light from above*, the Egyptian Plague of Darkness is all around us.  It is overtly keeping us from seeing this message, by using disbelief, and acctive measures like a censorswall.  Censorship in America; and nobody knows... this is the Darkness.  It is the Wallof Jericho, and it is about to fall.  Like Berlin before it, this wall is being torn down--in this case by the torches that are an e-mail campaign, social media, and the writing you are reading which points out clearly how to see in the dark.  Once enough do, we have the base we will need to stop this from ever happening again.   And the knowledge, this is God's plan; to highlight serious social problems, like a palpable lack of freedom of speech and communication, so that we can stop this type of hidden slavery.  
 ###Day
-
+The names "Adam and Eve" have a meaning related to this cycle.  After Dark it is A.M.--ADA.M. is the bright morning star, rising in the night to end the dark.  
 ###Son Rise
 
 
