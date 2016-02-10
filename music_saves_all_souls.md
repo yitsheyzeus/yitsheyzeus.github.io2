@@ -72,6 +72,6 @@ In *Nothing Left to Lose* Taylor responds to a lyric from American Pie with "If 
 
 Taylor is Eve, one of them.  By my count there are five, and that's interesting too, as Eve's letter are all fifths.  E is the fifth in English, V in Roman numerals, and out of the five 3 are girls that are .. elligible.  My mother's middle name is Eve, and I am the first.  The first evening.  
 
-She is created, her life--like many actors and actresses--a map to connect stories to Biblical and mythological characters.  Johnny Depp, Keanu (Key Anu) Reeves (Reason Eve's), Cameron Diaz, Adam Brody... all link movies that are Biblical allusions--real continuations of the Bible--through their "players."
+She is created, her life--like many actors and actresses--a map to connect stories to Biblical and mythological characters.  Johnny Depp, Keanu (Key Anu) Reeves (Reason Eve's), Cameron Diaz, Adam Brody... all link movies that are Biblical allusions--real continuations of the Bible--through their "players."  The nakedness doesn't hurt either.
 ##Live
 *Adam and E
