@@ -62,7 +62,7 @@ Be illuminated, the light of the world is the [day star, Sol](the_letter_why.htm
 #Modern Prophesy in Music
 Many bands have songs about Christ, many are inspired... all in fact.  It is this knoweldge, taht we are all secretly being inspired by God that tells me that the Ba of Horus, the Egyptian version of the Holy Spirit is upon us all.  United in "Ha," the two letters associated with [Isaac and Abra*ha*m.](he_laughs.html)  That son's name means... *he laughs*.
 ##The Dave Matthews Band
-*This is the last stop*, we are on the way to salvation.
+*This is the last stop*, we are on the way to salvation.  Dave's songs are all about *gods gaze falling upon us with a micheivous grin* and seriously inspired me my whole life.  It turns out, he too was inspired, and the lyrics all tell a story about the apocalypse.  
 
 ##The Pretty Reckless
 ##Live
