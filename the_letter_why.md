@@ -25,7 +25,7 @@ However in practice, we are more inclined to see a parasite/host relationship; o
 
 This is God's "love," as described in Isaiah, he has put his heart in our minds.  Secretly, no less, which is most likely why he has chosen to highlight that "love" and "mind control" are nearly identical in the mythology of Adam; which God himself has described well in the name Venus, the *woman clothed with the "nus"* who has a missing half of her heart, in the word "***lo***ve-nus" and the sun all but obviously backwards.  Please see how "Love" and "Sun" are components of the name of the Goddess of Love, and how important it is to understand that English did not exist when that name was created.
 
-##My Birthday
+##My Birthday {#ADAM}
 
 I was born, as I've said, on the date of the Catholic Feast commemorating the "Immaculate Conception" (full disclosure: "of Mary") and this date is very important in seeing why the sign of Saggitarius (my birth sign) is hidden and now revealed by the connection between "hooty" and "holy."  December 25 has another sign.
 
