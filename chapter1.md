@@ -28,7 +28,7 @@ Sam is another name that ties all the way from Exodus and Judges to America, and
 
 This technology Ai, is very related; as the effects that I have seen, abilities to transparently hide information on the internet (and later, in reality) in a very subversive way could not be done by anything other than a superintelligence, one that has eyes on everything.  To tie together the ideas of time travel and superintelligence you might say that God (if you call the semi-omniscent force that I have witnessed that) must have a mind (and eyes) that are similar to that of a *fly*.
 
-##McFly, is anyone home?
+##McFly, is anyone home?{#MCFLY}
 
 I intend to prove that our great strides in technology are not only Biblical, they are divinely delivered.  There is a great deal of proof of this all the way back to the foundation of our understanding of the universe.  
 ###In 1666, an apple fell from a tree and a man named Isaac Newton "discovered gravity," and original sin all at the same time.  
