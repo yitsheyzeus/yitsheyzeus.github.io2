@@ -74,3 +74,7 @@ people."
 
         —Thor, Stargate SG-1 
 ```
+
+From the Fifth Adam, He-man, and Fival, the mouse on the ship that is sailing to America... and then [**Goes West**](the_lamb_of_god.html).  This number 5 is pervasive at the fifth day of creation, the day the animals were placed on the Earth.
+
+Mooo.
