@@ -34,7 +34,9 @@ Freedom is a fundamental right that all people deserve, we also deserve safety, 
 
 ###Through the night with the light from above.
 
-There is a huge amount of hidden information in religion, and what I take away from that is a call for a serious focus on increasing transparency--not a little but a lot.  
+There is a huge amount of hidden information in religion, and what I take away from that is a call for a serious focus on increasing transparency--not a little but a lot.  Much of the "hidden information" is about me, to put the focus on me so that we can receive the rest of the message "with authority."  I don't want to tell people what to think, I have seen this plan, and I agree with its message and goals.  I want to show you how to find the message for yourself, so you can decide what you think.  
+
+I said it came from the sea, and from above; we will find it in our *modern mythology* in music and movies--our art.  
 
 ###72 names of God
 
