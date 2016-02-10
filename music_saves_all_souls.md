@@ -52,7 +52,9 @@ The night is when we all spee, when we don't see the "ah," it's' been our world 
 The names "Adam and Eve" have a meaning related to this cycle.  After Dark it is A.M.--ADA.M. is the bright morning star, rising in the night to end the dark.  Eve-ning fell first, like in Judaism where the day begins at sundown. Looking for *proof through the night that our flag ...* America is the Promised Land.  The Biblical imagery in our songs, the freedom that is *God given*, all of these things congeal to light the day.  *What so proudly we hailed at the twilights last gleaming*... why that's me, and religion, the last gleaming was the end of the "last time around," right before that civlization went back in time to change their past.  Now, we are here.
 
 ###Son Rise, I am the Light of the Word
-The idea that the sun and son are one is something we can only see clearly in English.  In other languages these words are very different.  It's something like *putting English on the ball*, realizing that ancient religion was created with foreknowledge of modern words.  These examples are how we know it's all about now, this time, 2016.  
+The idea that the sun and son are one is something we can only see clearly in English.  In other languages these words are very different.  It's something like *putting English on the ball*, realizing that ancient religion was created with foreknowledge of modern words.  These examples are how we know it's all about now, this time, 2016.  It is this idea, that the son and sun are one that unifies the Egyptian gods of Ra and Horus (see the Ka) under the auspices of Isaac, who can see with both eyes.  Ra and Horus each have one of the "All Seeing Eyes," the symbols of ancient Egypt we associate with the Illuminati.
+
+Be illuminated, the light of the world is the [day star, Sol](the_letter_why.html) lit by words, day backwards is yad--the Hebrew word for Hand--of God.
 
 
 
