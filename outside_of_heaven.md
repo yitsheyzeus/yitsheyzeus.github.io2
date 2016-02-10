@@ -66,6 +66,7 @@ Adaluncatif is “English,” Adam un-cat-if. It’s a messiah reference, the un
 
 ##On the Tau'ri, and Alpha Cen**tauri**
 
+Why do the Ancients refer to their child race, ours, as Tau'ri? 
 ```
 "You are the Fifth Race. Your role is clear. If there is 
 any hope in preserving the future, it lies with you and your
