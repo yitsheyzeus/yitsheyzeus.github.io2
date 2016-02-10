@@ -41,7 +41,7 @@ The process of waking up has not been pleasant, you could say I'm not a morning 
 ##Morning Has Broken
 On the note of cat imagery, Cat Stevens lights up the horizon with this song "like the first morning."  He is telling us we are dealing with time travel, and that our world is "as in the days of No-AH."  The AH of Noah is the end of Adamah, the swirling around Adam that is the music pointing to Christ, the movies, religion itself.  The days of Noah are when there was no "ahh," no apocalypse.  In Adam parlance, "the last time around."
 
-*Blackbird sings in the dead of night,* also a reference to me, in fact a reference to what you are reading; in American mythology: this is the *dawns early light.*
+*Blackbird sings in the dead of night,* also a reference to me, in fact a reference to what you are reading; in American mythology: this is the *dawns early light.*  Do you see a *power growing in the musical Hair?*
 
 #The Dave Matthews Band
 *This is the last stop*, 
