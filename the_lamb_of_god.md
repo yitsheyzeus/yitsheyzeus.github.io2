@@ -37,7 +37,7 @@ Our gas hed marches on
 
 This mention of photographs links to the first commandment and a number of other songs which relate to the "burning of Isaac;" pictures taken of Adam naked in Eden.  I am hoping to show you that these are hidden references to a very real story; one that is secretly being sung about using the same technology which forced me to do drugs and "walk around naked in Egypt." Chronicled in *Isaiah 20.*  These three chapters, from 20 to 22 show very clearly that mind control is responsible for nakedness of Isaiah, and lack of forgiveness in 22 the cause of destruction.
 
-There is a significant link between *Gas Hed* and another popular culture legend, *An American Tail.*  Fival is a perfect match for the Fifth-El; here also related to [He-man (via the Fifth Hebrew letter, He)](im_single.html), and topically through the sequel the series, *Fival Goes West.*
+There is a significant link between *Gas Hed* and another popular culture legend, *An American Tail.*  Fival is a perfect match for the Fifth-El; here also related to [He-man (via the Fifth Hebrew letter, He)](im_single.html), and topically through the sequel the series, *Fival Goes West.*  Anakin's Pod race in Star Wars' *Phantom Menace* also eerily reminiscent of a race around the country, one that was more like a game.  Anakin is, of course, Darth Vader.. the Earth Wader who didn't walk on water, but waded.
 
 ```
 Eat, Drink and be Merry... 
