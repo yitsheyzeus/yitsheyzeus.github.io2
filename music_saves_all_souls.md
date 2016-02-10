@@ -26,7 +26,7 @@ angel sings.
 ###*Everyone must be saved.* -Taylor Momsen
 ##*In* the beginning -God
 
-"IN" is *in* [my name, Dobrin](the_letter_why.html) it's in [Wellbutrin](my_dying_breath.html), and it's in the beginning.  It's the very first word, and the very first command of God--hidden until now--to *In* the beginning.  It's about entry to Heaven, a *way in*, and here the intention is clear.  We have suffered for being at the beginning, and clearly that makes us responsible for what comes, for the Heaven that he is commanding us entry to.  The idea to *save everyone* is fundamental to the [*Holy Grail* and the reference to *water*](holy_water,_sang_rael) in Matthew 3:11--for repentance, I am teaching you what baptism means: to teach.
+"IN" is *in* [my name, Dobrin](the_letter_why.html), it's in [Wellbutrin](my_dying_breath.html), and it's in the beginning.  It's the very first word, and the very first command of God--hidden until now--to *In* the beginning.  It's about entry to Heaven, a *way in*, and here the intention is clear.  We have suffered for being at the beginning, and clearly that makes us responsible for what comes, for the Heaven that he is commanding us entry to.  The idea to *save everyone* is fundamental to the [*Holy Grail* and the reference to *water*](holy_water,_sang_rael) in Matthew 3:11--for repentance, I am teaching you what baptism means: to teach.
 
 ##In the Jungle
 
