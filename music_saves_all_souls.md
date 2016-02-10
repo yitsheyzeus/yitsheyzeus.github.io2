@@ -39,6 +39,9 @@ Seeing that this song about the Lion of Judah sleeping in Eden was about me was 
 The process of waking up has not been pleasant, you could say I'm not a morning person.
 
 ##Morning Has Broken
+On the note of cat imagery, Cat Stevens lights up the horizon with this song "like the first morning."  He is telling us we are dealing with time travel, and that our world is "as in the days of No-AH."  The AH of Noah is the end of Adamah, the swirling around Adam that is the music pointing to Christ, the movies, religion itself.  The days of Noah are when there was no "ahh," no apocalypse.  In Adam parlance, "the last time around."
+
+
 
 #The Dave Matthews Band
 #The Pretty Reckless
