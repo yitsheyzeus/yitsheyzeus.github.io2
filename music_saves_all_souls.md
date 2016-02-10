@@ -21,10 +21,10 @@ He played a melody as pure and sweet as a caroling
 angel sings.
                    The Touch of the Master Hand
 
-Five billion proud, willing to punch it out. -Dave Matthews
-Everyone must be saved. -Taylor Momsen
-In the beginning -God
-```
+
+###Five billion proud, willing to punch it out. -Dave Matthews
+###Everyone must be saved. -Taylor Momsen
+###In the beginning -God
 
 ##In the Jungle
 
