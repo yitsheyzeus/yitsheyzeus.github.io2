@@ -43,6 +43,14 @@ On the note of cat imagery, Cat Stevens lights up the horizon with this song "li
 
 *Blackbird sings in the dead of night,* also a reference to me, in fact a reference to what you are reading; in American mythology: this is the *dawns early light.*  Do you see a *power growing in the musical Hair?*
 
+###Night
+
+###Day
+
+###Son Rise
+
+
+
 #The Dave Matthews Band
 *This is the last stop*, 
 
