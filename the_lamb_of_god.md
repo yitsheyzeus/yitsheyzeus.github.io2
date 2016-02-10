@@ -169,7 +169,7 @@ These are words of God.
 ##If I go crazy, *will you still call me Superman?*
 *Kryptonite* by 3 Doors Down singing about the foregone conclusion of this story, a finding by all of humanity that Jesus existing is simply insanse.  Seriously, that's what you think--on the surface, deep down, and all around.  This song, along with "The truth will set you free," were a big part of my decision not to hide who I am in court.  Not to mention, I had to get the message out, to be noticed--for you.
 
-All of these songs, Two Princes, Heaven Knows, and Kryptonite unite to tell a story about me.  All of them were written prior to the events they discuss, and all of them link Christ to Superman... not even through Kentucky, Clark Kent, or Kal-El.. but through drugs.
+All of these songs, Two Princes, Heaven Knows, and Kryptonite unite to tell a story about me.  All of them were written prior to the events they discuss, and all of them link Christ to Superman... not even through Kentucky, Clark Kent, or Kal-El.. but through drugs and wisdom.
 
 ```
 Ah keep your eyes on the road,
