@@ -57,9 +57,10 @@ The idea that the sun and son are one is something we can only see clearly in En
 Be illuminated, the light of the world is the [day star, Sol](the_letter_why.html) lit by words, day backwards is yad--the Hebrew word for Hand--of God.  Adam and Eve together, the bright morning star of Venus converts to the sun.  
 
 
-
-#The Dave Matthews Band
+#Modern Prophesy in Music
+Many bands have songs about Christ, many are inspired... all in fact.  It is this knoweldge, taht we are all secretly being inspired by God that tells me that the Ba of Horus, the Egyptian version of the Holy Spirit is upon us all.  United in "Ha," the two letters associated with Isaac and Abra*ha*m.  That son's name means... *he laughs*.
+##The Dave Matthews Band
 *This is the last stop*, 
 
-#The Pretty Reckless
-#Live
+##The Pretty Reckless
+##Live
