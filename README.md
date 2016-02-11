@@ -131,7 +131,7 @@ If you do not agree with the teachings of your religion, or a religious leader, 
 
 You *might* think I should adopt, believe in, or be preaching about *your religion.*  Will point you to the prophesy of Jesus Christ, who came and started a new religion.  He preached about--and I whole heartedly believe in--openness, new ideas, and changing the world.  This is my desire, to grow who and what we are into what I think each of us is individually--but we hide it from each other.  We are freedom loving, caring and kind, we would stand up for the truth and righteousness if we could.  We are inundated with a world of lies and opression, and largely ignore it.  This mentality, of not fighting the world, or the govnment, is understandable--it's a big beast that has come out of the sea; it's mean and scary... so we live our lives and try to focus on our families.  I don't like that.  I'm not doing that.
 
-The future will thank me, will it thank you too?  Get involved.
+The future will thank me, will it thank you too?  Get involved.  If not with me, here, then with government.  Nationally or locally.  Get invovled with charitable organizations, ones who do things you think are good and right.  
 
 
 ###72 names of God
