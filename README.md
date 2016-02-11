@@ -78,6 +78,18 @@ Had you not been "new," you would almost certainly already know that "what goes 
 #its the "n" of the word as we know it.
 R.E.M. sings about feeling fine, but I am anything but.  In case you are wondering, this is not the end of the world; it is for certain the "end of the beginning."  For me, I bring you a story of a war in a court room, one which I am sure links the Trial of Christ to the Book of Judges.  In this war, Samson gains strength, presumably of character recognition, from his long hair and its likeness to that of Jesus Christ.  I on the other hand have not had this benefit, despite my sincere likeness; and I fear to be destined the fate of the Son of our Uncle Sam...
 
+###Time, that's alright!
+
+Lots of what I write is about time, discussing how it's related to, and proven by religion. I think this is important, I think God does too, since it's fundamentally *the focus of the sign of the son,* which heralds *this* Second Coming.  Dave, I love you.
+
+```
+It seems by now, I'm playing time against my troubles...
+God speed, I'm coming.
+
+Do you wish, for a dance?  
+While I'm in the front, it seems my play on time is won.
+```
+
 ![Y its Hey, Zeus!](YITSHEYZEUS.jpg)
 We are now *Post-face.*
 
