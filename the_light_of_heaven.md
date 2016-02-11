@@ -48,7 +48,16 @@ I'm not going to be advocating this.  I am going to be telling you it is already
 In the future people will be omniscient.  Well, not totally omniscient... not even God is that.  Think please, there's no way to know everything, none at all.  In case you are wondering if I have any scriptural evidence for this claim, I will provide you think one obscure reference.  
 
 ```
+Do not tremble, do not be afraid. Did I not proclaim this 
+and foretell it long ago? You are my witnesses. 
+
+Is there any God besides me? No, there is no other Rock;
+I know not one."
+
+Isaiah 44:8
 ```
+He looked though, believe me, God looks for fellow time traveling mind controllers all the time.  It's his job.  It's house he keeps us safe, and remains Godly.
+
 
 ##It's time I told you how a girl and a guy could kiss... on a night like this
 
