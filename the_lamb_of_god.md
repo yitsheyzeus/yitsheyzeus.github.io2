@@ -187,9 +187,11 @@ Try to set the night on fire
 
 -The Doors, Light my Fire
 ```
-##Can you take me *higher*, to a place where blind men see?
+##Can you take me *higher*, to a place where blind men see?{#HIGHER}
 
-God held a carrot out on a stick by talking to me more, and with more vibrant audo and visual aids.  For whatever reason, when I got high, the blind could see.  People around me changed, He spoke clearly and told coherent stories that spanned from day to day.  
+God held a carrot out on a stick by talking to me more, and with more vibrant audo and visual aids.  For whatever reason, when I got high, the blind could see.  People around me changed, He spoke clearly and told coherent stories that spanned from day to day. 
+
+We had discussions and arguments, about you; about the future, and what we could offer to the world.  I learned about the [*futures past*](outside_of_heaven.html], what went wrong and what went right.  From these conversations I know where we are going, what the speedbumps and roadblocks will be, and how to move past them.  This book is an introduction to the ideas that save civilization.  How technology can be used to help us evolve socially, without losing who and what we are, the light of the Universe.
 
 
 #In the House of the Rising Son
