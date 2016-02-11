@@ -64,6 +64,10 @@ The Doors, "Light my Fire"
 
 The details of her life, the content of her songs, and the links to Genesis are clear.  I need help to be seen, to really light a spark, one that she is singing about; obviously without knowing all she needs to do is send a tweet.  Links between religion and music are proof of something, a divine hand writing the story of the Second Coming.  Names, lyrics, and the undying fire that it's about to be kindled are all about to converge on one single interaction.  The first spark.
 
+Taylor's favorite song is:
+
+##Above the *Strawberry Fields*, Great Plains, and Wednesday
+
 #It's not enough, we need more evidence.
 Ok fine, it's not enough.  In like kind, correlating between Spanish and Hebrew words, this time "the" instead of "is" we have the answer to your prayers.  Here "is" which has just been divinely defined in the names above is used to show the equality between "El" and "Ha."
 
