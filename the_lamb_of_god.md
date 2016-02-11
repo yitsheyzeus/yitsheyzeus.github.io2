@@ -23,6 +23,10 @@ Live sings another song, "GAS hed Goes West," which discusses this trip in a nea
 
 Point in fact, I was not doing drugs of my own volition, I was being *mind controlled* in what is a perfect example of how the system set up to "punish and correct" our society is destructive.  It is a lesson for Heaven not to *burn the day away*, chronicled in the book of Genesis.  This is the story of the near sacrifice of the son of Abram.
 
+##Can you take me *higher*, to a place where blind men see?
+
+
+
 ```
 He's a bonified man, a star amongst his clan. 
 It's the memory that dies, our gas hed was right.  
