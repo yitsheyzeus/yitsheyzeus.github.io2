@@ -22,7 +22,7 @@ Eden is the land I love, a *den* of Lions, family in the chalice... the [Holy Gr
 Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.md#SON)
 
 
-###My life story is woven into a tapestry of art.  Unbenknowst to the authors, or the world, or even me, the story of the life of Christ is hidden away in the most popular songs and movies of our day, just not the ones you think.  Through this spectacle, the Second Coming, God proves his existence, and gives us his purpose--to help us grow.
+###My [life story is woven](the_lamb_of_god.html) into a tapestry of art.  Unbenknowst to the authors, or the world, or even me, the story of the life of Christ is hidden away in the most popular songs and movies of our day, just not the ones you think.  Through this spectacle, the Second Coming, God proves his existence, and gives us his purpose--to help us grow.
 
 Understanding how hiding a message, from the author and world can do that is important.  Because they didn't know the details of my life, the story that is explain in this book; they couldn't have intended to create the links between works.  From the Doors in the 70's to The Pretty Reckless, The Wizard of Oz to Star Wars and Superman... God shows us that our *modern myth* is a continuation of religion and our culture is part of the story, the most important part.  
 
