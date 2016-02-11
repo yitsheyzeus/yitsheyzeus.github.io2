@@ -67,6 +67,9 @@ The details of her life, the content of her songs, and the links to Genesis are 
 Taylor's favorite song is (America the Beautiful?):
 
 ##Above the *Strawberry Fields*, Great Plains, and Wednesday
+Wednesday backwards is Heblish (that's Hebrew, English, and an acronym) is **hand: send EW**.  I think it's telling the hand of God to send the Earth Wisdom, or Wands.  The wands come from Great Plains, a Microsoft accounting program that allows users to write their own reports.  FRX forms, they are called; and I think Frixas is related too; these forms are part the inspiration for the idea of what the wands actually do.
+
+
 
 #It's not enough, we need more evidence.
 Ok fine, it's not enough.  In like kind, correlating between Spanish and Hebrew words, this time "the" instead of "is" we have the answer to your prayers.  Here "is" which has just been divinely defined in the names above is used to show the equality between "El" and "Ha."
