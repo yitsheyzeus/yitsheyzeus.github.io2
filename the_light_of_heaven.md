@@ -45,6 +45,11 @@ I'm not going to be advocating this.  I am going to be telling you it is already
 
 ##The New Political Party
 
+In the future people will be omniscient.  Well, not totally omniscient... not even God is that.  Think please, there's no way to know everything, none at all.  In case you are wondering if I have any scriptural evidence for this claim, I will provide you think one obscure reference.  
+
+```
+```
+
 ##It's time I told you how a girl and a guy could kiss... on a night like this
 
 ##Peter Pan, Never Never Land
