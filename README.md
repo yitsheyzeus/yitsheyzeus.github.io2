@@ -30,8 +30,6 @@ Understanding how hiding a message, from the author and world can do that is imp
 
 Today, as technology gets more advanced more rapidly, He shows us how science and the future have always been at the heart of scripture--waiting to be unsealed.  All of history, religion, and a big part of everything around us is created--taylored to help us right now, here... in *The Book of Life.*
 
-![](1503307_10152194732013420_1589480428_n.jpg)
-
 ##True Purpose
 The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a [mask for technology](the_encl.html) and a means to oppress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
 
