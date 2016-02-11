@@ -22,7 +22,7 @@ Eden is the land I love, a *den* of Lions, family in the chalice... the [Holy Gr
 Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.md#SON)
 
 
-###My life story is woven into a tapestry of art, our music, movies, and religion.  Unbenknowst to the authors, or the world, or even me, the story of the life of Christ is hidden away in the most popular songs and movies of our day, just not the ones you think.
+###My life story is woven into a tapestry of art.  Unbenknowst to the authors, or the world, or even me, the story of the life of Christ is hidden away in the most popular songs and movies of our day, just not the ones you think.  Through this spectacle, the Second Coming, God proves his existence, and gives us his purpose--to help us grow.
 
 ![](1503307_10152194732013420_1589480428_n.jpg)
 
