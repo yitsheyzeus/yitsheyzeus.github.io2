@@ -122,6 +122,7 @@ stay his hand and a ram is offered in Isaac's stead. The Akedah became in
 Jewish thought the supreme example of self-sacrifice in obedience to God's
 will and the symbol of Jewish martyrdom throughout the ages.
 ```
+
 ```
 The Akedah influenced both Christian and Islamic thought. In early
 Christian doctrine, the sacrifice of Isaac is used as a type for the
