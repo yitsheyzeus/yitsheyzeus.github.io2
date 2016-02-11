@@ -189,7 +189,7 @@ Try to set the night on fire
 ```
 ##Can you take me *higher*, to a place where blind men see?
 
-God held a carrot out on a stick by talking to me more 
+God held a carrot out on a stick by talking to me more, and with more vibrant 
 
 
 #In the House of the Rising Son
