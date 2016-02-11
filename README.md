@@ -129,6 +129,8 @@ I've seen the hidden meaning in the words of scripture and the customs and tradi
 
 If you do not agree with the teachings of your religion, or a religious leader, or me... you should not follow them or spread them.  This is important, because if you just do what people say, you are a slave at best, and a robot at worst.  Think!  
 
+You *might* think I should adopt, believe in, or be preaching about *your religion.*  Will point you to the prophesy of Jesus Christ, who came and started a new religion.  He preached about--and I whole heartedly believe in--openness, new ideas, and changing the world.  This is my desire, to grow who and what we are into what I think each of us is individually--but we hide it from each other.  We are freedom loving, caring and kind, we would stand up for the truth and righteousness if we could.  We are inundated with a world of lies and opression, and largely ignore it.  I don't like that.  I'm not doing that.
+
 
 ###72 names of God
 
