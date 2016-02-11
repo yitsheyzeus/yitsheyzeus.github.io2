@@ -189,7 +189,7 @@ Try to set the night on fire
 ```
 ##Can you take me *higher*, to a place where blind men see?
 
-God held a carrot out on a stick by talking to me more, and with more vibrant 
+God held a carrot out on a stick by talking to me more, and with more vibrant audo and visual aids.  For whatever reason, when I got high, the blind could see.  People around me changed, He spoke clearly and told coherent stories that spanned from day to day.  
 
 
 #In the House of the Rising Son
