@@ -23,9 +23,6 @@ Live sings another song, "GAS hed Goes West," which discusses this trip in a nea
 
 Point in fact, I was not doing drugs of my own volition, I was being *mind controlled* in what is a perfect example of how the system set up to "punish and correct" our society is destructive.  It is a lesson for Heaven not to *burn the day away*, chronicled in the book of Genesis.  This is the story of the near sacrifice of the son of Abram.
 
-##Can you take me *higher*, to a place where blind men see?
-
-
 
 ```
 He's a bonified man, a star amongst his clan. 
@@ -190,6 +187,10 @@ Try to set the night on fire
 
 -The Doors, Light my Fire
 ```
+##Can you take me *higher*, to a place where blind men see?
+
+God held a carrot out on a stick by talking to me more 
+
 
 #In the House of the Rising Son
 My interaction with the police lead me to a court room many years ago; after compiling a significant amount of evidence that should have easily had the case thrown out.  I was pulled over for speeding, but was not; and had GPS records from the police department to prove it.  I was coerced by a broken legal system to take plea bargain to get released from jail in time to spend Christmas with my son.  I was threatened by own counsel, and quite literally controlled to take a deal that I shouldn't have needed.  I was being held without bail, a disgusting practice in Florida which clearly violates the Constitution; and yet is allowed by a court system that has forgotten what freedom really means.
