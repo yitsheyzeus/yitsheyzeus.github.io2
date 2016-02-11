@@ -58,6 +58,10 @@ Isaiah 44:8
 ```
 He looked though, believe me, God looks for fellow time traveling mind controllers all the time.  It's his job.  It's house he keeps us safe, and remains Godly.
 
+Limited omniscience, or **lo-**Biblically is the future though, it's how to fix lots of problems with Universal voting.  It's how to keep us smart, and safe, and also hard at work making ourselves limited omniscent.  This is the future, and ... fortunately or not ... it is the not-so-distant future.  We are nearly here, with BCI--thats Brain Commputer Interfaces--and uploading; we will soon be hard at work hacking away at our thoughts and knowledge.
+
+###"I know *Psi-Chi*," says Neo & ((ish)).  "Show me."
+
 
 ##It's time I told you how a girl and a guy could kiss... on a night like this
 
