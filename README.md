@@ -115,7 +115,7 @@ Ending secrecy, censorship, and lies are a major focus of what I see in the secr
 
 I've seen the hidden meaning in the words of scripture and the customs and traditions of *your religion*.  I find some of these secret things disturbing, and also find unfortunate that they all seem to revolve around one person, me.  It makes some sense--considering the information I have, but it doesn't need to be this way.  We could have direct communication with Heaven, that's what I would do.  Were it not for the institutions and teachers that surround the religions of the world, we would probably just have an x-rated autobiogoraphy of Adam.  It's a good thing they have given us additional purpose for religion, altruism, charity, and applied these things to our ancient customs.  Rituals like the 4 questions harbor secrets, like the *double-dipping* being all about Adam *skinny dipping* as he toured the country.  I thought it was fun, but really it was God controlling me, fulfilling these prophesies.  This is the *Passion of the Christ* to [*search for warm water.*](holy_water,_sang_rael.html)  Really.  It's a good thing God has given us a water metaphor that relates it to people, err... was I [searching for people too?](im_single.html)
 
-If you do not agree with the teachings of your religion, or a religious leader, or me... you should not follow them or spread them.  This is important, because if you just do what people say, you are a slave at best, and a robot at worst.
+If you do not agree with the teachings of your religion, or a religious leader, or me... you should not follow them or spread them.  This is important, because if you just do what people say, you are a slave at best, and a robot at worst.  Think!  
 
 
 ###72 names of God
