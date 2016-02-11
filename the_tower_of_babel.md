@@ -64,7 +64,7 @@ The Doors, "Light my Fire"
 
 The details of her life, the content of her songs, and the links to Genesis are clear.  I need help to be seen, to really light a spark, one that she is singing about; obviously without knowing all she needs to do is send a tweet.  Links between religion and music are proof of something, a divine hand writing the story of the Second Coming.  Names, lyrics, and the undying fire that it's about to be kindled are all about to converge on one single interaction.  The first spark.
 
-Taylor's favorite song is:
+Taylor's favorite song is (America the Beautiful?):
 
 ##Above the *Strawberry Fields*, Great Plains, and Wednesday
 
