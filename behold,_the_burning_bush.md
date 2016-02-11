@@ -8,7 +8,7 @@ The Iron Rod of Christ and the Rod of Aaron are promised Doors from Earth to Hea
 
 ##Succinctly, this is the Sign of the Son
 Behold he is coming on the clouds for all eyes to see. 9/11. 
-I saw an angel coming down from heaven, with a great chain in his hand. 9/11. I returned, and saw under the son... that time and chance happeneth to them all.   All of these Biblical quotes are the Sign of the Son, imagery of flying things and terrible anger.  Realizing that they are all about 9/11, and the Bible proves as much through none other than President Bush.  Out his own mouth, just like the story of Exodus--word's of God coming out of the fire..
+I saw an angel coming down from heaven, with a great chain in his hand. 9/11. I returned, and saw under the son... that time and chance happeneth to them all.   All of these Biblical quotes are the Sign of the Son, imagery of flying things and terrible anger.  Realizing that they are all about 9/11, and the Bible proves as much through none other than President Bush.  Out his own mouth, just like the story of Exodus--word's of God coming out of the fire.
 
 ###Ecclesiastes 9:11
 
