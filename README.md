@@ -26,7 +26,7 @@ Egypt is the place we are in, where you don't know me, hidden by the Plague of D
 
 Understanding how hiding a message, from the author and world can do that is important.  Because they didn't know the details of my life, the story that is explain in this book; they couldn't have intended to create the links between works.  From the Doors in the 70's to The Pretty Reckless, The Wizard of Oz to Star Wars and Superman... God shows us that our *modern myth* is a continuation of religion and our culture is part of the story, the most important part.  
 
-Today, as technology gets more advanced more rapidly, He shows us how science and the future have always been at the heart of scripture--waiting to be unsealed.  All of history, religion, and a big part of everything around us is created--taylored to help us right now, here... in the Book of Life.
+Today, as technology gets more advanced more rapidly, He shows us how science and the future have always been at the heart of scripture--waiting to be unsealed.  All of history, religion, and a big part of everything around us is created--taylored to help us right now, here... in *The Book of Life.*
 
 ![](1503307_10152194732013420_1589480428_n.jpg)
 
