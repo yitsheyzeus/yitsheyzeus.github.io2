@@ -117,6 +117,7 @@ I've seen the hidden meaning in the words of scripture and the customs and tradi
 
 
 
+
 ###72 names of God
 
 Judaism has a concept of God having 72 names; it turns out he's nearly everyone in the Bible; a metaphorical explanation of just how he feels:  that he's nearly everyone.  I know we don't feel the same way, it's a matter of perspective.  The Bible explains it by linking many of the characters and their stories to me.  Jeremiah was jailed, Joseph enslaved, Job and Jesus tried (although differently).  The sign of the son links 7 more from the planets Mercury... the Messenger like Mohammed, to the Gods of War, Light-ning, Time, and Heaven.  Zeus and He*ra*, He-man and She-*Ra*; hidden references to a link between the Egyptian God of the S~~o~~n and what we thought was ancient history (and cartoons).  He is Samson for his hair, and [courtoom battle in Judges--a link to a real court in Florida.](the_lamb_of_god.html#ISA)  [Nero for his fire and music,](music_saves_all_souls.html) [Caesar for "vini vidi vici," Napoleon, Popeye, He-man, and me.](im_single.html)
