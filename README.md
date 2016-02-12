@@ -122,7 +122,9 @@ The Hebrew name for the Book of Exodus is "Names," and this reference is a stron
 ###There's *Magic* in *Names*
 The Midrash and Talmud are replete with the use of names of God and incantations that are claimed to effect supernatural or theurgic results. Most post-Talmudic rabbinical literature seeks to curb the use of any or most of these formulae, termed Kabbalah Ma'asit ("practical Kabbalah"). There are various arguments for this; one stated by the Medieval Rabbi Yaakov ben Moshe Levi Moelin is that the person using it may lack the required grounding, and the ritual would be ineffective.  Other magical practices of Judaic folk religion which became part of practical Kabbalah date from Talmudic times and include the making of amulets and other folk remedies using the esoteric names of angels.  
 
-These magical incantations are historical allusions to the Garden of Eden, to this Revelation that our names contain secret information: a message from God himself.  
+These magical incantations are historical allusions, references that are manifested in our history and traditions, to the Garden of Eden and this Revelation that our names contain secret information: a message from God himself.  
+
+
 
 #Your Religion
 You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and [*Nashian*](http://www.whenistheapocalypse.com/paranoia-synchronicity decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.  Some of these things appear to be in religion to make us stop and think, to urge swift reform of horrible concepts like Holy Wars against people based on esoteric beliefs.
