@@ -38,7 +38,7 @@ than the God of his brother Ham. Presumably, this assumption is based
 on this verse: "He also said, "Blessed be the LORD, the God of Shem! 
 May Canaan be the slave of Shem." (Gen. 9:26)
 ```
-It is noteworthy that Ham and Shem's names "combine" to nearly reveal **Ha'shem**.  *My mythology* relates this missing "m" to the Messiah, and the apostrophe is a clear reference to the ***Light above***.  It appears in both Ha'esh, where it is dividing the sea, and this word where it might be hiding the "m." 
+It is noteworthy that Ham and Shem's names "combine" to nearly reveal **Ha'shem**.  *My mythology* relates this missing "m" to the Messiah, and the apostrophe is a clear reference to the ***Light above***.  It appears in both Ha'esh, where it is dividing the sea, and this word where it might be hiding the "m." This idea of the Messiah being hidden is pervasive.
 
 ###ha'meforash 
 Yet another rendition of "the name," and now an entire English sentence which also ties in the word "ash."  The savior is laughing about being accused of cursing the Earth.. ashes to ashes, now to esh.  Ash could also be a dimiuative reference to the consort of El, whose name is Asherah.
