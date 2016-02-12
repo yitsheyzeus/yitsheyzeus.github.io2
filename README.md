@@ -119,6 +119,9 @@ We can begin to see the message by understanding the perspective of the authors.
 ##Kaballah: Exodus means Names, and *The Hidden One*
 The Hebrew name for the Book of Exodus is "Names," and this reference is a strong allusion to the modern day, where our names are all divinely inspired.  Kurzweil links to *civilization*, the **Li**on of Judah, and **Zi**on; Goert**zel** to **Zel**da, the *Last El*, and both of these to [**AD** on **A**rtificial **i**intellgience: Ai.](chapter1.html)  My name is a reference to the [*Feast of the Immaculate Conception* and my birthdate](the_letter_why.html) which tangentially supports that my D.O.B. is related to us [all getting "in" Heaven](music_saves_all_souls.html) or at least that goal is related to my *arrival*.
 
+###There's *Magic* in *Names*
+
+
 #Your Religion
 You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and *Nashian* decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.  Some of these things appear to be in religion to make us stop and think, to urge swift reform of horrible concepts like Holy Wars against people based on esoteric beliefs.
 
