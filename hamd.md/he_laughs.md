@@ -30,6 +30,15 @@ This is somewhat obvious when you think about it, the name of the planet Earth i
 
 ###ha'shem
 Wouldn't you guess there's a joke on the way.  The name of God is a sacred secret in Judaism, and it must not be uttered.  The ineffable name is thus replaced with descriptions or abbreviations in order to keep its secret safe.  One such description is Ha'shem which literally means "the name."  This is a direct reference to Eden, and the laughter is once again geared at the obvious foreknowledge of English in the construction of Hebrew and religion.  There is *no shame* for Adam, who knows he is the savior.
+```
+Shem is an honorific title, not a name. Jews call God HaShem (השם) 
+which means "the Name"as in Leviticus 24:11. Some interpret this to 
+mean the God of Shem, implying that the God of Shem is a different God 
+than the God of his brother Ham. Presumably, this assumption is based 
+on this verse: "He also said, "Blessed be the LORD, the God of Shem! 
+May Canaan be the slave of Shem." (Gen. 9:26)
+```
+It is noteworthy that Ham and Shem's names "combine" to nearly reveal **Ha'shem**.  *My mythology* relates this missing "m" to the Messiah, and the apostrophe is a clear reference to the ***Light above***.  It appears in both Ha'esh, where it is dividing the sea, and this word where it might be hiding the "m." 
 
 ###ha'meforash 
 Yet another rendition of "the name," and now an entire English sentence which also ties in the word "ash."  The savior is laughing about being accused of cursing the Earth.. ashes to ashes, now to esh.  Ash could also be a dimiuative reference to the consort of El, whose name is Asherah.
