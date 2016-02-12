@@ -1,8 +1,8 @@
 # Summary
 
 * [Introduction](README.md)
-* [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Ha'esh and Ai](chapter1.md)
+* [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Music Saves All Souls](music_saves_all_souls.md)
 * The Story of Exodus
 * 2-4-6-8 Adam Who?
