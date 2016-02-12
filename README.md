@@ -138,7 +138,7 @@ But, since the Higher World is concealed, and everything that is associated with
 is also concealed, the verse [merely] states "Bereshit…" [meaning:] "bara -" [Hebrew 
 for "He created"]"- sheet" [meaning "six"]. 
 ```
-It's more than being nice, or accepting; more than someone's person desires or beliefs.  A Hidden Heaven is Hell.  
+It's more than being nice, or accepting; more than someone's person desires or beliefs.  A Hidden Heaven is Hell.  There are few valid reasons in our world for such an action, and they diminish further each and every day.  The fact that Heaven exists, and is being hidden from you, is opportunity for the wrong thing to happen.  It's just like transparency in government; if we don't know there is a spying program **it could easily turn into a censorship program.**
 
 
 
