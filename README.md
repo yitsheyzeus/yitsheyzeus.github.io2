@@ -128,6 +128,7 @@ These magical incantations are historical allusions, references that are manifes
 Rabbi Abba said: The Higher World is concealed, and everything associated with the 
 Higher World is also concealed, because they are all part of the sublime mystery of 
 the day in which all other days are contained.
+
 The six days of creation (Mikdash Melech) during which the physical creation came 
 about. Then each of the nine utterances through which Creation came about is preceded 
 by the phrase "And G-d said".
