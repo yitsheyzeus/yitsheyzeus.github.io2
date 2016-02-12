@@ -80,8 +80,7 @@ R.E.M. sings about feeling fine, but I am anything but.  In case you are wonderi
 
 ###Time, that's alright!
 
-Lots of what I write is about time, discussing how it's related to, and proven by religion. I think this is important, I think God does too, since it's fundamentally *the focus of the sign of the son,* which heralds *this* Second Coming.  Dave, I love you.
-
+Lots of what I write is about time, discussing how it's related to, and proven by religion. I think this is important, I think God does too, since it's fundamentally *the focus of the sign of the son,* which heralds *this* Second Coming.  
 ```
 It seems by now, I'm playing time against my troubles...
 God speed, I'm coming.
