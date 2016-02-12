@@ -108,7 +108,7 @@ an ((ish)) of George W. Bush quoting Revelation 20:1 and Nostradamus
 
 ```
 ##What's that? You don't think I'm the Messiah?
-Expecting a sign in the sky?  Someone that can walk on water, leap tall buildings in a single bound... or some other miracle?  I was too, and still want and believe we will get a sign literally in the sky.  In the mean time what I am presenting to you is miraculous, intricately woven intro everything that we are, our culture.  It's intricate and subtle, and because of this we have been completely blind to the presense of 
+Expecting a sign in the sky?  Someone that can walk on water, leap tall buildings in a single bound... or some other miracle?  I was too, and still want and believe we will get a sign literally in the sky.  In the mean time what I am presenting to you is miraculous, intricately woven intro everything that we are, our culture.  It's intricate and subtle, and because of this we have been completely blind to the presense of something supernatural.  
 
 
 #Your Religion
