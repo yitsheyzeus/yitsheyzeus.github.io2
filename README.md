@@ -124,6 +124,19 @@ The Midrash and Talmud are replete with the use of names of God and incantations
 
 These magical incantations are historical allusions, references that are manifested in our history and traditions, to the Garden of Eden and this Revelation that our names contain secret information: a message from God himself.  The Zohar tells us that it came from the Garden, and it is a chronicle of this time also sent back into the past.
 
+```
+Rabbi Abba said: The Higher World is concealed, and everything associated with the 
+Higher World is also concealed, because they are all part of the sublime mystery of 
+the day in which all other days are contained.
+The six days of creation (Mikdash Melech) during which the physical creation came 
+about. Then each of the nine utterances through which Creation came about is preceded 
+by the phrase "And G-d said".
+
+But, since the Higher World is concealed, and everything that is associated with it 
+is also concealed, the verse [merely] states "Bereshit…" [meaning:] "bara -" [Hebrew 
+for "He created"]"- sheet" [meaning "six"]. 
+```
+```
 
 
 
