@@ -5,7 +5,7 @@ In the beginning God created the heaven and the earth.
 And the earth was without form, and void; and darkness 
 was upon the face of the deep. And the Spirit of God       SHE KIN AH   
 moved upon the face of the waters.                         ----------
-                                                             EVE RY ONE
+                                                           EVE RY ONE
 And God said, Let there be light: and there was light.
 
 Genesis 1:1-3
@@ -17,7 +17,7 @@ From the S E A of Eden, to the multitude of Revelation.
           e v d                 
           t e a                  Shekinah
           h   m                  Everyone
-                                A ...damah
+                                 A ...damah
  ```
                                 
 Taylor Momsen sings that "everyone must be saved."  There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  
