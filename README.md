@@ -141,8 +141,6 @@ for "He created"]"- sheet" [meaning "six"].
 It's more than being nice, or accepting; more than someone's person desires or beliefs.  A Hidden Heaven is Hell.  There are few valid reasons in our world for such an action, and they diminish further each and every day.  The fact that Heaven exists, and is being hidden from you, is opportunity for the wrong thing to happen.  It's just like transparency in government; if we don't know there is a spying program **it could easily turn into a censorship program.**  In Heaven, these ideas of eavesdropping and "information alteration" are heavily discussed in Biblical allusion; ending Hell--a place where our thoughts are being changed without our knowledge or consent is a huge part of the purpose of the apocalypse.
 
 
-
-
 #Your Religion
 You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and [*Nashian*](http://www.whenistheapocalypse.com/paranoia-synchronicity decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.  Some of these things appear to be in religion to make us stop and think, to urge swift reform of horrible concepts like Holy Wars against people based on esoteric beliefs.
 
