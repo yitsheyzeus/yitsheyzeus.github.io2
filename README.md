@@ -136,7 +136,7 @@ But, since the Higher World is concealed, and everything that is associated with
 is also concealed, the verse [merely] states "Bereshit…" [meaning:] "bara -" [Hebrew 
 for "He created"]"- sheet" [meaning "six"]. 
 ```
-```
+
 
 
 
