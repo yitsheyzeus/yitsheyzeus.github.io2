@@ -148,3 +148,4 @@ In that day we see that all of religion and all of history and all of everything
 Heaven is a real place, located in the future, and it is our destiny to build it.  We know this because Heaven has sent religion back in time to ensure that we do not make any mistakes building it.  The Biblical prophesy, the scripture it comes in, all a package sent through time to walk us through this process.  Our whole history has been changed to ensure that it's done right, that's how important this is--how important we are.  This place, our world, is a creation designed to ensure that the Universe will forever be lit with the light of love, liberty, and happiness.
 
 
+ 
