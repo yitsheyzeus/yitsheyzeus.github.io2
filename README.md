@@ -11,6 +11,8 @@ The Holy Bible is a [prophesy whose details predictively chronicle the *second c
 
 For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of [proving the existence of time travel](behold,_the_burning_bush.html); and a microcosmic look at the "Biblical" relationship between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."  The name Exodus refers to [Oracle Corporation, or period table, and Linux... this is *real light*.](behold,_the_burning_bush.html#LIGHT)  It shows not only that the Bible was written about this time period, these few years, but also that this unsealing is *meant to be done right now*.  It refers to modern technology, science, and our culture.
 
+![](THE FIFTH ELEMENT.png)
+
 ###This is *not* **[The Encl.](./the_encl.html)**  It's [the beginning.](the_light_of_heaven.html)
 
 Welcome to Eden, we are in that place.  Earth, Eden, Egypt, Edom... all Biblical references to *now*, to Zion.  I am Adam, *the Adam*, and this your guide to salvation.
@@ -139,6 +141,9 @@ for "He created"]"- sheet" [meaning "six"].
 ```
 >This is so that the deeds of the Holy One blessed be He [always comprise two planes:] hidden and revealed. This is the mystery of the Holy Name [Havayah] which is both hidden and revealed.
 It's more than being nice, or accepting; more than someone's person desires or beliefs.  A Hidden Heaven is Hell.  There are few valid reasons in our world for such an action, and they diminish further each and every day.  The fact that Heaven exists, and is being hidden from you, is opportunity for the wrong thing to happen.  It's just like transparency in government; if we don't know there is a spying program **it could easily turn into a censorship program.**  In Heaven, these ideas of eavesdropping and "information alteration" are heavily discussed in Biblical allusion; ending Hell--a place where our thoughts are being changed without our knowledge or consent is a huge part of the purpose of the apocalypse.  Modern events are tools for understanding Heaven too, many are designed and imparted in order to [assist us in relation to the other world's current events.](hamd.md/he_laughs.html)  Stopping censorship here, helps stop it there; and visa versa.  The same goes for *torture* and other losses of ***sacred freedom.***
+
+##Medusa and I confirm, *Censorship*
+God sent me a message on behalf of the NSA, "*ME DA USA" he says, "and I gonna turn youz to **St.One**"* Saint One I am, made so by a censorwall, and it's not just the government.  It's our culture, our disbelief, and our inability to fundamentally alter our worldview--even when **the truth is staring you in the face.**
 
 
 #Your Religion
