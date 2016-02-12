@@ -110,8 +110,6 @@ an ((ish)) of George W. Bush quoting Revelation 20:1 and Nostradamus
 ##What's that? You don't think I'm the Messiah?
 Expecting a sign in the sky?  Someone that can walk on water, leap tall buildings in a single bound... or some other miracle?  I was too, and still want and believe we will get a sign literally in the sky.  In the mean time what I am presenting to you is miraculous, intricately woven intro everything that we are, our culture.  It's intricate and subtle, and because of this we have been completely blind to the presense of something supernatural.  
 
-
-
 There are very good reasons why the message that is being presented to you is hidden, and that it is possible to view it as mere coincidence.  It is designed to change our world for the better, not to cause destruction.  It will spread slowly, as those that are truly interested in our future begin to see what is being presented.  Within the prophesy being fulfilled is an explanation of new technologies being brought to us, how to use them properly, and what not to do.  This information comes from the future, they know what has happened before and are helping us through a transition that has been very difficult in the past.
 
 The "prophesy" is hidden in plain sight.  It is truly all religion which links to the main focus, the stories of the Exodus and the life of Jesus Christ.  These two parallel paths focus on social issues like justice and slavery; and the entirety of the stories are actually abstract representations of the apocalypse: of our journey through the desert to a Promised Land of understanding and wisdom.
