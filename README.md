@@ -122,7 +122,8 @@ The Hebrew name for the Book of Exodus is "Names," and this reference is a stron
 ###There's *Magic* in *Names*
 The Midrash and Talmud are replete with the use of names of God and incantations that are claimed to effect supernatural or theurgic results. Most post-Talmudic rabbinical literature seeks to curb the use of any or most of these formulae, termed Kabbalah Ma'asit ("practical Kabbalah"). There are various arguments for this; one stated by the Medieval Rabbi Yaakov ben Moshe Levi Moelin is that the person using it may lack the required grounding, and the ritual would be ineffective.  Other magical practices of Judaic folk religion which became part of practical Kabbalah date from Talmudic times and include the making of amulets and other folk remedies using the esoteric names of angels.  
 
-These magical incantations are historical allusions, references that are manifested in our history and traditions, to the Garden of Eden and this Revelation that our names contain secret information: a message from God himself.  
+These magical incantations are historical allusions, references that are manifested in our history and traditions, to the Garden of Eden and this Revelation that our names contain secret information: a message from God himself.  The Zohar tells us that it came from the Garden, and it is a chronicle of this time also sent back into the past.
+
 
 
 
