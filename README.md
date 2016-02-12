@@ -124,6 +124,7 @@ The Midrash and Talmud are replete with the use of names of God and incantations
 
 These magical incantations are historical allusions, references that are manifested in our history and traditions, to the Garden of Eden and this Revelation that our names contain secret information: a message from God himself.  The Zohar tells us that it came from the Garden, and it is a chronicle of this time also sent back into the past.
 
+###Heaven is Hidden, so am I.  Neither should be.
 ```
 Rabbi Abba said: The Higher World is concealed, and everything associated with the 
 Higher World is also concealed, because they are all part of the sublime mystery of 
