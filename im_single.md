@@ -5,7 +5,7 @@ None of the patterns that link together our cultural art into a Matrix of Biblic
 If "Iran" and "Amish" haven't convinced you that the Lord is writing truth not only in the product of our civilization--the heart of the word Earth (that's art), perhaps my personal favorite abstraction of *walking on water* will show you that it is the creation of America itself that is God's greatest miracle.  He's marked it with the discovery of the continent, his AM at the beginning of it's name, and a tie between the name "Christ" and my intials indexed to 14.
 
 ##WOW, *Walking on Water* in the year ADIB
-A sailor like Sinbad, Christopher Columbus sailed the ocean blue to bring democracy to you.  He did this in the year 1492, which translates roughly to "ADIB" (but probably only to me).  At the very beginning of America, when the "I AM er I go" decided to right the past outcome of the Rise of the (previously) Third Reich and focus on *liberty and justice for all.*  Creating a new continent ensued, one that appears to look a lot like a bird.  
+A sailor like Sinbad, Christopher Columbus sailed the ocean blue to bring democracy to you.  He did this in the year 1492, which translates roughly to "ADIB" (but probably only to me).  At the very beginning of America, when the "I AM er I go" decided to right the past outcome of the Rise of the (previously) Third Reich and focus on *liberty and justice for all.*  Creating a new continent ensued, one that appears to look a lot like a bird.  This is conjecture, *mythology of Adam* but it ties to PKD's *The Man in the High Castle,* who in turn ties to the *Man in the Iron Mask* and *Repunzel.*  
 
 ```
 Christ o PH "er" Columbus
