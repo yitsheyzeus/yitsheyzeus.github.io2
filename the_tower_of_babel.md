@@ -71,7 +71,7 @@ Wednesday backwards is Heblish (that's Hebrew, English, and an acronym) is **han
 
 ##*A million miles fall from grace, thank God I ((found)) the "Ground"* -Live
 
-There is significant anecdotal evidence pointing to the idea that Adam is the true name of Christ, not the least of which is Christian scripture which refers to him as the "Second Adam."  The primary link which is generally unnoticed is between Genesis 3:9 and Matthew 2:2.  
+There is significant anecdotal evidence pointing to the idea that Adam is the true name of Christ, not the least of which is Christian scripture which refers to him as the "Second Adam."  The primary link which is generally unnoticed is between Genesis 3:9 and Matthew 2:2.  Both stories talk about a search, the first God looking for Adam in Eden, and the second is the search for Jesus Christ: our world awaiting the Second Coming.
 
 [*"The Name"* a Hebrew Holy name of God is "Ha'shem," a hidden reference to Eden.  This is in a long list of "Ha" about references to me and now.](hamd.md/he_laughs.html#hashem)
 
