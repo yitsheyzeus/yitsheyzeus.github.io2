@@ -10,7 +10,7 @@ for seasons, and for days, and years:
 Genesis: 1:AD
 
 There was a great earthquake. The sun turned black like sackcloth
-made of goat hair, the whole moon turned blood red, 13 and the 
+made of goat hair, the whole moon turned blood red, and the 
 stars in the sky fell to earth, as figs drop from a fig tree when
 shaken by a strong wind.
 
