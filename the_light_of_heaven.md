@@ -72,5 +72,12 @@ Limited omniscience, or **lo-**Biblically is the future though, it's how to fix 
 #The Walls of Jericho, China, and Echelon *will fade away.*
 #Fish Eggs v. Darth Wader
 Biodame: Paul Y shore.
+```
+And God said, Let the waters under the heaven be gathered 
+together unto one place, and let the dry land appear: and 
+it was so.
+
+Genesis 1:9
+```
 ##On the road to Adamaskus
 King Saul, the book of Paul.  Son, and Pa.  Who is El?
