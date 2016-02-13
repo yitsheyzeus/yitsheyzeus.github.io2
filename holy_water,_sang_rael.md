@@ -11,6 +11,14 @@ And God said, Let there be light: and there was light.
 Genesis 1:1-3
 ```
 
+##Holy Water is *people*
+```
+And God called the dry land Earth; and the gathering together 
+of the waters called he Seas: and God saw that it was good.
+
+Gensis 1:10
+```
+
 ##Mary and the Whymar Republic
 ```
 From the S E A of Eden, to the multitude of Revelation.
