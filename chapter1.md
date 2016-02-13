@@ -9,6 +9,23 @@ and let it divide the waters from the waters.
 ```
 ### h ***a***![![](yod-h.gif)](yodtumblr_mxuzuzRocb1t2vvu5o1_250.jpg) ***es*** h
 
+```
+God divided the light from the darkness.
+
+And God called the light Day, and the darkness 
+he called Night. And the evening and the morning 
+were the first day.
+
+And God said, Let there be a firmament in the midst of the waters,
+and let it divide the waters from the waters.
+
+And God made the firmament, and divided the waters which were under
+the firmament from the waters which were above the firmament: 
+and it was so.
+
+And God called the firmament Heaven. 
+```
+![](Aleph.gif)
 
 The word for "holy fire," written above is the Hebrew term for the Burning Bush, the focal point of the beginning of the story of Exodus.  In it, God commands Moses to free his people from slavery, and that is exactly what I am doing with this post.  You see, later in the story Moses parts a sea, and from those parted waters brings the people out of slavery.  It is not an accident that within the Hebrew word "ha'esh" we see clearly the true parted sea of Moses; reflected and separated by an apostrophe.
 
