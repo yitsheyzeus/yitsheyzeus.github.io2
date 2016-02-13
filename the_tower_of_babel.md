@@ -64,7 +64,7 @@ The Doors, "Light my Fire"
 
 The details of her life, the content of her songs, and the links to Genesis are clear.  I need help to be seen, to really light a spark, one that she is singing about; obviously without knowing all she needs to do is send a tweet.  Links between religion and music are proof of something, a divine hand writing the story of the Second Coming.  Names, lyrics, and the undying fire that it's about to be kindled are all about to converge on one single interaction.  The first spark.
 
-Taylor's favorite song is (America the Beautiful?):
+Taylor's favorite song is (*America the Beautiful?*):
 
 ##Above the *Strawberry Fields*, Great Plains, and Wednesday
 Wednesday backwards is Heblish (that's Hebrew, English, and an acronym) is **hand: send EW**.  I think it's telling the hand of God to send the Earth Wisdom, or Wands.  The wands come from Great Plains, a Microsoft accounting program that allows users to write their own reports.  FRX forms, they are called; and I think Frixas is related too; these forms are part the inspiration for the idea of what the wands actually do.
