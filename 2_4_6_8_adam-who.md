@@ -27,4 +27,24 @@ Till the stars fall from the sky for you and I
  
 The Doors, Touch Me
 ```
+
+##And the Fire
+
+```
+The heavens receded like a scroll being rolled up, and every
+mountain and island was removed from its place.
+
+Revelation 6:AD
+
+God is a consuming fire.
+
+2 Peter 3:10
+
+believe not in Allah and His Messenger, He has prepared, 
+for those who reject Allah, a Blazing Fire!" 
+
+Koran 48:13
+
+```
+
 ##Shofar
