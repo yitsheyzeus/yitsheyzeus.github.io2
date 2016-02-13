@@ -205,7 +205,7 @@ It was three years earlier, Matching Isaiah 20 [to a "t,"](the_letter_why.html) 
 This is one of the only "reverse" examples of langolier that I have found, but it is screamingly pertinent.  It shows the contraction of "of" into "o" that appears in "God," "langolier," and a number of other words.  It is a clear reference to this *run around the country* and a battle betwen Adam and the authorities.   I've previously contrasted the connotation of a "Plague" with what is closer to what I experienced, which was a *Pursuit of Happiness.*
 
 
-##Holy Purpose
+#Holy Purpose
 
 Our entire legal system is broken, and it's being highlighted by God as the primitive and archaic monstrosity that it has begun.  After being forcibly starved by a malnutricious diet that is the status quo in America; and sleep deprived systematically by the jail and court system; Judges around the country have the gaul to ask defendants: "are you taking this plea of your own volition?"  Bound in shackles and unable to write clearly, I signed my name to a plea which sparked an almost immediate race against this system which secretly was designed to cripple the savior of humanity.  I was forced to run, we Koran--I am told, out of fear of continued incarceration by a system which had already violated my freedom to no end.  These are not problems that are unique to me, or to Florida; they are American problems that surround a system that has become nothing less than the destruction of American freedom, a retribution system Biblically highlight as worse than *an eye for an eye.*
 
