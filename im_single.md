@@ -80,7 +80,7 @@ I've seen through a sort of vision how each of our planets are actually the star
 
  
 
-To solve the elements for the planets in the middle, though, you have to really know me.  In this case the tie is over the connection between the number 14 and 5 which I personally relate by way of my initials (AD) and the number of the "day of creation" I associate with my ... birth.  Five has always been my number, and if I can pull movies out of thin air to confirm things (like The Fifth Element) I might as well mention Short Circuit here, completely with it's named reference to "Johnny" (for Jesus) and being "alive."   You could also look at your hand, and see another connection between 14 and 5, one that brings up another good "AD" example, the word for hand in Hebrew, YAD.  That's "why AD?" To see!
+To solve the elements for the planets in the middle, though, you have to really know me.  In this case the tie is over the connection between the number 14 and 5 which I personally relate by way of my initials (AD) and the number of the "day of creation" I associate with my ... birth.  Five has always been my number, and if I can pull movies out of thin air to confirm things (like The Fifth Element) I might as well mention Short Circuit here, completely with it's named reference to "Johnny" (for Jesus) and being "alive."   
   
 
 Truly what I see being exposed here is proof that there is angelic or outside control over our culture, through the well placed examples in our movies (and plays) all the way from Mila Jovovich's messianic role in The Fith Element to Shakespeare's question, which I for one have always wondered about when I think about this favorite movie.
