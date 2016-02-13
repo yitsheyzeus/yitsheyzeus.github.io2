@@ -14,7 +14,7 @@ made of goat hair, the whole moon turned blood red, and the
 stars in the sky fell to earth, as figs drop from a fig tree when
 shaken by a strong wind.
 
-Revelation 6:12
+Revelation 6:12-13
 ```
 
 ##The *You and I* *verse*, my Universe
