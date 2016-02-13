@@ -51,14 +51,19 @@ that you may warm yourselves.
 
 Koran 27:7
 
-See, the LORD is coming with fire, and his chariots are like a whirlwind; he will bring down his anger with fury, and his rebuke with flames of fire.
+See, the LORD is coming with fire, and his chariots are like a
+whirlwind; he will bring down his anger with fury, and his 
+rebuke with flames of fire.
 
 Isaiah 66:15
 
-From heaven he made you hear his voice to discipline you. On earth he showed you
- his great fire, and you heard his words from out of the fire
+From heaven he made you hear his voice to discipline you. 
+On earth he showed you his great fire, and you heard his
+words from out of the fire
  
  Deuteronomy 4:36
+ 
+ 
 ```
 
 ##The Last Day
