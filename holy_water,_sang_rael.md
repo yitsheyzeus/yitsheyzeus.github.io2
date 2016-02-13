@@ -12,7 +12,7 @@ Genesis 1:1-3
 ```
 
 ##Holy Water is *people*
-This is a baptism, or at least what that concept metaphorically refers to, it's a shock with cold *water*, seeing that something so obvious has been hidden from the world *and absolutely nobody noticed.*  Kudos.
+This is a baptism, or at least what that concept metaphorically refers to, it's a shock with cold *water*, seeing that something so obvious has been hidden from the world *and absolutely nobody noticed.*  Kudos Earthlings.
 ```
 And God called the dry land Earth; and the gathering together 
 of the waters called he Seas: and God saw that it was good.
