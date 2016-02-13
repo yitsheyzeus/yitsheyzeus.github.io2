@@ -47,6 +47,7 @@ As a tie between "AD" and "Y" we have the question *"Why A.D.?"* which does a go
 
 ![](yad-ds.gif)
 To answer the question with more conviction and authority, I'd cite another "n" reference, this time to the 14th chapter of John.
+
 ```
  If you really know me, you will know my Father as well. 
  From now on, you do know him and have seen him.
