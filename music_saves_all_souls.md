@@ -75,3 +75,5 @@ Taylor is Eve, one of them.  By my count there are five, and that's interesting 
 She is created (sort of like you), her life--like many actors and actresses--a map to connect stories to Biblical and mythological characters.  It shows the divine hand, a guiding influence over the creation of these religious art works.  Johnny Depp, Keanu (Key Anu) Reeves (Reason Eve's), Cameron Diaz, Adam Brody... all link movies that are Biblical allusions--real continuations of the Bible--through their "players."  The nakedness doesn't hurt either.
 ##Live
 *Adam and Eve live down the street from ((you)), a million miles fall from grace.. thank God I ((found)) the ground.*
+
+##I'm so *vain*
