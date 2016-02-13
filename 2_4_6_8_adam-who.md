@@ -45,6 +45,12 @@ for those who reject Allah, a Blazing Fire!"
 
 Koran 48:13
 
+surely i see fire; i will bring to you from it some news, 
+or i will bring to you therefrom a burning firebrand so 
+that you may warm yourselves.
+
+Koran 27:7
 ```
+
 
 ##Shofar
