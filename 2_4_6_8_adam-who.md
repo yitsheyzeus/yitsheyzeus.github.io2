@@ -50,6 +50,10 @@ or i will bring to you therefrom a burning firebrand so
 that you may warm yourselves.
 
 Koran 27:7
+
+See, the LORD is coming with fire, and his chariots are like a whirlwind; he will bring down his anger with fury, and his rebuke with flames of fire.
+
+Isaiah 66:15
 ```
 
 ##The Last Day
