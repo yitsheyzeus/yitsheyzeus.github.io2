@@ -69,7 +69,7 @@ Taylor's favorite song is (America the Beautiful?):
 ##Above the *Strawberry Fields*, Great Plains, and Wednesday
 Wednesday backwards is Heblish (that's Hebrew, English, and an acronym) is **hand: send EW**.  I think it's telling the hand of God to send the Earth Wisdom, or Wands.  The wands come from Great Plains, a Microsoft accounting program that allows users to write their own reports.  FRX forms, they are called; and I think Frixas is related too; these forms are part the inspiration for the idea of what the wands actually do.
 
-##*A million miles fall from grace, thank God I ((found)) ~~the~~ "Ground"* -Live
+##*A million miles fall from grace, thank God I ((found)) ~~the~~ "Ground"* -Live{#GROUND}{#ADAMAH}{#LIVE}
 
 There is significant anecdotal evidence pointing to the idea that Adam is the true name of Christ, not the least of which is Christian scripture which refers to him as the "Second Adam."  The primary link which is generally unnoticed is between Genesis 3:9 and Matthew 2:2.  Both stories talk about a search, the first God looking for Adam in Eden, and the second is the search for Jesus Christ: our world awaiting the Second Coming.  These parallel stories do a good job of describing what the Hebrew name for Earth is ***Adam*ah**.  The "ah" suffix applies to "Adam" and means "*to swirl around*."  
 
