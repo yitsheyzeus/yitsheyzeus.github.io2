@@ -7,6 +7,7 @@
 * The Story of Exodus
 * [The Letter Why](the_letter_why.md)
 * [The Tower of Babel](the_tower_of_babel.md)
+* 2 4 6 8 Adam-Who
 * [The Lamb of God](the_lamb_of_god.md)
 * [Bread for the Poor](bread_for_the_poor.md)
 * [I'm Single](im_single.md)
@@ -18,5 +19,4 @@
 * His Heart and SOL
 * [The Encl](the_encl.md)
 * [Outside of Heaven](outside_of_heaven.md)
-* 2 4 6 8 Adam-Who
 
