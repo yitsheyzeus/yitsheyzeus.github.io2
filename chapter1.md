@@ -5,7 +5,7 @@ It does, actually.  The single word that begins a real holy fire is the word for
 And God said, Let there be a firmament in the midst of the waters,
 and let it divide the waters from the waters.
 
-                                                       Genesis 1:2
+                                                       Genesis 1:6
 ```
 ### h ***a***![![](yod-h.gif)](yodtumblr_mxuzuzRocb1t2vvu5o1_250.jpg) ***es*** h
 
