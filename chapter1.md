@@ -13,6 +13,7 @@ The word for "holy fire," written above is the Hebrew term for the Burning Bush,
 
 This is the beginning of that fire spreading, proving through an anachronism of language that the writers of the Bible had foreknowledge of the English language.  The entire story of Exodus, from the fire that begins with God's first words to the actual Exodus from Egypt--through the se'a--is designed to highlight this anachronism... to prove that religion is designed to set us free.  Our civilization is created using this same technology, as proven simply by the existence of religion.  This is only the beginning, Hebrew itself is part of the message; the time capsule from the future. 
 
+
 ```
 God divided the light from the darkness.
 
