@@ -48,7 +48,20 @@ As a tie between "AD" and "Y" we have the question *"Why A.D.?"* which does a go
 ![](yad-ds.gif)
 To answer the question with more conviction and authority, I'd cite another "n" reference, this time to the 14th chapter of John.
 ```
-
+ If you really know me, you will know my Father as well. 
+ From now on, you do know him and have seen him.
+ 
+ Jesus answered: “Don’t you know me, Philip, even after I 
+ have been among you such a long time? Anyone who has seen
+ me has seen the Father. 
+ 
+ How can you say, ‘Show us the Father’?  Don’t you believe 
+ that I am in the Father, and that the Father is in me? 
+ 
+ The words I say to you I do not speak on my own authority. 
+ Rather, it is the Father, living in me, who is doing his work.
+ 
+ John 14:7,9,10
 ```
 
 The Book of Revelation for tells of a mystery, one which is partially solved by the name "Sinbad" and its application of The Fifth Element to Shakespeare's question to the ages: "To be or not to be?"
