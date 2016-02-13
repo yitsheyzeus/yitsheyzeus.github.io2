@@ -63,9 +63,15 @@ words from out of the fire
  
  Deuteronomy 4:36
  
+ There the angel of the LORD appeared to him in flames of fire 
+ from within a bush. Moses saw that though the bush was on fire
+ it did not burn up. 
  
+ Exodus 3:2
 ```
 
+### When a calf, a ***lamb*** or a goat is born, it is to remain with its mother for seven days. From the eighth day on, it will be acceptable as a food offering presented to the LORD.
+ 
 ##The Last Day
 
 ##Shofar
