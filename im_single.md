@@ -82,7 +82,6 @@ I've seen through a sort of vision how each of our planets are actually the star
 
 To solve the elements for the planets in the middle, though, you have to really know me.  In this case the tie is over the connection between the number 14 and 5 which I personally relate by way of my initials (AD) and the number of the "day of creation" I associate with my ... birth.  Five has always been my number, and if I can pull movies out of thin air to confirm things (like The Fifth Element) I might as well mention Short Circuit here, completely with it's named reference to "Johnny" (for Jesus) and being "alive."   
   
-
 Truly what I see being exposed here is proof that there is angelic or outside control over our culture, through the well placed examples in our movies (and plays) all the way from Mila Jovovich's messianic role in The Fith Element to Shakespeare's question, which I for one have always wondered about when I think about this favorite movie.
 
 ![](to be or b.png)
@@ -93,9 +92,7 @@ A.D. comes up in more interesting places.  The Hebrew name meaning "Lord God" is
 Then there's the Greek god, **Adonis;** which might highlight that there is a clear language within words, a "Cyper" if you will that links myths and names together in a sort of "Matrix" across the globe and through time.  If **Adonai** is "AD on Artificial Intelligence" (which makes logical sense as a reason for Lord Christ's being) then **Adonis** must be "me" on "Information Systems."   No wait,
 "I'm Single" makes much more sense in the context of the story.
 
- 
-
-This is a dating site, right?
+Adonis also reminds us that *"thinking every song is about you, out you, don't you"* might get you killed while you stare into the mirror.  This is a dating site, right?
 
 #ADvent
 Being hidden from the world has been difficult for me, you can imagine I'd vent nearly every Christmas... waiting to be able to deliver a message that I know the world needs to hear.  More than that, they need it to come from Christ himself, even if they don't really want him to exist.  I'm sure to disappoint those seeking perfection, or even someone that's nice all the time; but not delivering the world changing message is probably a bigger problem for me.  Hopefully you won't hate me as much as the last guy.
