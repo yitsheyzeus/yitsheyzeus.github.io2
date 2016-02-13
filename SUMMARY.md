@@ -5,7 +5,6 @@
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Music Saves All Souls](music_saves_all_souls.md)
 * The Story of Exodus
-* 2-4-6-8 Adam Who?
 * [The Letter Why](the_letter_why.md)
 * [The Tower of Babel](the_tower_of_babel.md)
 * [The Lamb of God](the_lamb_of_god.md)
