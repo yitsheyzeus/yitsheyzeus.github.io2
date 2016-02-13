@@ -73,8 +73,6 @@ Wednesday backwards is Heblish (that's Hebrew, English, and an acronym) is **han
 
 There is significant anecdotal evidence pointing to the idea that Adam is the true name of Christ, not the least of which is Christian scripture which refers to him as the "Second Adam."  The primary link which is generally unnoticed is between Genesis 3:9 and Matthew 2:2.  Both stories talk about a search, the first God looking for Adam in Eden, and the second is the search for Jesus Christ: our world awaiting the Second Coming.  These parallel stories do a good job of describing what the Hebrew name for Earth is, literally translated as *Ground*, it is Adamah.  The "ah" suffix applies to "Adam" and means "*to swirl around*."  
 
-
-
 [*"The Name"* a Hebrew Holy name of God is "Ha'shem," a hidden reference to Eden.  This is in a long list of "Ha" about references to me and now.](hamd.md/he_laughs.html#hashem)
 
 #It's not enough, we need more evidence.
