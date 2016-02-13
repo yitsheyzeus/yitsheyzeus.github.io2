@@ -9,6 +9,10 @@ and let it divide the waters from the waters.
 ```
 ### h ***a***![![](yod-h.gif)](yodtumblr_mxuzuzRocb1t2vvu5o1_250.jpg) ***es*** h
 
+The word for "holy fire," written above is the Hebrew term for the Burning Bush, the focal point of the beginning of the story of Exodus.  In it, God commands Moses to free his people from slavery, and that is exactly what I am doing with this post.  You see, later in the story Moses parts a sea, and from those parted waters brings the people out of slavery.  It is not an accident that within the Hebrew word "ha'esh" we see clearly the true parted sea of Moses; reflected and separated by an apostrophe, ad "yod."
+
+This is the beginning of that fire spreading, proving through an anachronism of language that the writers of the Bible had foreknowledge of the English language.  The entire story of Exodus, from the fire that begins with God's first words to the actual Exodus from Egypt--through the se'a--is designed to highlight this anachronism... to prove that religion is designed to set us free.  Our civilization is created using this same technology, as proven simply by the existence of religion.  This is only the beginning, Hebrew itself is part of the message; the time capsule from the future. 
+
 ```
 God divided the light from the darkness.
 
@@ -26,10 +30,6 @@ and it was so.
 And God called the firmament Heaven. 
 ```
 ![](Aleph.gif)
-
-The word for "holy fire," written above is the Hebrew term for the Burning Bush, the focal point of the beginning of the story of Exodus.  In it, God commands Moses to free his people from slavery, and that is exactly what I am doing with this post.  You see, later in the story Moses parts a sea, and from those parted waters brings the people out of slavery.  It is not an accident that within the Hebrew word "ha'esh" we see clearly the true parted sea of Moses; reflected and separated by an apostrophe.
-
-This is the beginning of that fire spreading, proving through an anachronism of language that the writers of the Bible had foreknowledge of the English language.  The entire story of Exodus, from the fire that begins with God's first words to the actual Exodus from Egypt--through the se'a--is designed to highlight this anachronism... to prove that religion is designed to set us free.  Our civilization is created using this same technology, as proven simply by the existence of religion.  This is only the beginning, Hebrew itself is part of the message; the time capsule from the future. 
 
 A number of additional words are highlighted by Judaism, Islam, and Christianity, but everything begins with this one word... with fire.  It is no mistake that the creation myth of Greek mythology also highlights the this theft of fire; nor that a number of pivotal religious verses confirm Christ returns with fire.
 
