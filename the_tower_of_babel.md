@@ -72,6 +72,7 @@ Wednesday backwards is Heblish (that's Hebrew, English, and an acronym) is **han
 ##*A million miles fall from grace, thank God I ((found)) the "Ground"* -Live
 
 
+
 #It's not enough, we need more evidence.
 Ok fine, it's not enough.  In like kind, correlating between Spanish and Hebrew words, this time "the" instead of "is" we have the answer to your prayers.  Here "is" which has just been divinely defined in the names above is used to show the equality between "El" and "Ha."
 
