@@ -204,7 +204,7 @@ It was three years earlier, Matching Isaiah 20 [to a "t,"](the_letter_why.html) 
 ##**P**lague **O**f **LICE**
 This is one of the only "reverse" examples of langolier that I have found, but it is screamingly pertinent.  It shows the contraction of "of" into "o" that appears in "God," "langolier," and a number of other words.  It is a clear reference to this *run around the country* and a battle betwen Adam and the authorities.   I've previously contrasted the connotation of a "Plague" with what is closer to what I experienced, which was a *Pursuit of Happiness.*
 
-"POLICE" is part of the story of Exodus, it's relation to America and Christ, and to the proof that is before your eyes.  
+"POLICE" (the word) is part of the story of Exodus, it's relation to America and Christ, and to the proof that is before your eyes.  
 
 
 ##Holy Purpose
