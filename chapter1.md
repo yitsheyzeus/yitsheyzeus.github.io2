@@ -7,7 +7,7 @@ and let it divide the waters from the waters.
 
                                                        Genesis 1:6
 ```
-### h ***a***![![](yod-h.gif)](yodtumblr_mxuzuzRocb1t2vvu5o1_250.jpg) ***es*** h
+### h ***a*** ![](yod-scale-100.jpg) ***es*** h
 
 The word for "holy fire," written above is the Hebrew term for the Burning Bush, the focal point of the beginning of the story of Exodus.  In it, God commands Moses to free his people from slavery, and that is exactly what I am doing with this post.  You see, later in the story Moses parts a sea, and from those parted waters brings the people out of slavery.  It is not an accident that within the Hebrew word "ha'esh" we see clearly the true parted sea of Moses; reflected and separated by an apostrophe, ad "yod."
 
@@ -30,7 +30,7 @@ and it was so.
 
 And God called the firmament Heaven. 
 ```
-![](Aleph.gif)
+![](aleph-scale-100.gif)
 
 A number of additional words are highlighted by Judaism, Islam, and Christianity, but everything begins with this one word... with fire.  It is no mistake that the creation myth of Greek mythology also highlights the this theft of fire; nor that a number of pivotal religious verses confirm Christ returns with fire.
 
