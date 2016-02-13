@@ -1,6 +1,14 @@
 #What if the Apocalypse begins with one word?
 It does, actually.  The single word that begins a real holy fire is the word for Holy Fire itself, **ha'esh.**  This is the apocalypse, for real, and if you take the time to think about what is being presented here you will see religion in an entirely new light.  What I have is the true and correction Revelation of Jesus Christ: that the book of Exodus is designed to prove that the Holy Bible is a message sent to us, through time... from our future.  It is designed to prove as much, and bring us out of a kind of slavery that we don't really understand yet, but soon will.  We are the slaves in Egypt, to lies and deceit that are about to be lifted like a bright sonrising on the dark night.  
 
+```
+And God said, Let there be a firmament in the midst of the waters,
+and let it divide the waters from the waters.
+
+                                                       Genesis 1:2
+```
+![](yod-h.gif)
+
 The word for "holy fire," written above is the Hebrew term for the Burning Bush, the focal point of the beginning of the story of Exodus.  In it, God commands Moses to free his people from slavery, and that is exactly what I am doing with this post.  You see, later in the story Moses parts a sea, and from those parted waters brings the people out of slavery.  It is not an accident that within the Hebrew word "ha'esh" we see clearly the true parted sea of Moses; reflected and separated by an apostrophe.
 
 This is the beginning of that fire spreading, proving through an anachronism of language that the writers of the Bible had foreknowledge of the English language.  The entire story of Exodus, from the fire that begins with God's first words to the actual Exodus from Egypt--through the se'a--is designed to highlight this anachronism... to prove that religion is designed to set us free.  Our civilization is created using this same technology, as proven simply by the existence of religion.  This is only the beginning, Hebrew itself is part of the message; the time capsule from the future. 
