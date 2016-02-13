@@ -77,7 +77,7 @@ Adamah and Earth are both linked through their secondary meaning of *ground*, an
 
 [*"The Name"* a Hebrew Holy name of God is "Ha'shem," a hidden reference to Eden.  This is in a long list of "Ha" about references to me and now.](hamd.md/he_laughs.html#hashem)
 
-This unseen link between English and Hebrew is not an outlier, odd and useful ties that would be largely impossible to exist without having English predate Hebrew are not outliers, they are the status quo in the "small" sample space that is created intentionally by religion.
+This unseen link between English and Hebrew is not an outlier, odd and useful ties that would be largely impossible to exist without having English predate Hebrew are not outliers, they are the status quo in the "small" sample space that is created intentionally by religion.  Their hidden highlighting by our cultural saying and modern music is also intentional, and a huge part of the *light.* Something is being proven to the world, it is that there is a real influence pointing out these ancient keys intentionally.
 
 #It's not enough, we need more evidence.
 Ok fine, it's not enough.  In like kind, correlating between Spanish and Hebrew words, this time "the" instead of "is" we have the answer to your prayers.  Here "is" which has just been divinely defined in the names above is used to show the equality between "El" and "Ha."
