@@ -70,7 +70,7 @@ words from out of the fire
  Exodus 3:2
 ```
 
-### When a calf, a ***lamb*** or a goat is born, it is to remain with its mother for seven days. From the eighth day on, it will be acceptable as a food offering presented to the LORD.
+### When a calf, a lamb, or a goat is born, it must stay with its mother for seven days. From the eighth day on it may be accepted as a sacrifice by fire to the LORD.
  
 ##The Last Day
 
