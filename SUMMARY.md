@@ -14,9 +14,9 @@
 * [The Light of Heaven](the_light_of_heaven.md)
 * [My Dying Breath](my_dying_breath.md)
 * [He Laughs, again](hamd.md/he_laughs.md)
+* His Heart and SOL
 * [Holy Water, Sang Rael](holy_water,_sang_rael.md)
 * Atlantis and The Doors
-* His Heart and SOL
 * [The Encl](the_encl.md)
 * [Outside of Heaven](outside_of_heaven.md)
 
