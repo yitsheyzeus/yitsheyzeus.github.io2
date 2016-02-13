@@ -73,6 +73,8 @@ Wednesday backwards is Heblish (that's Hebrew, English, and an acronym) is **han
 
 There is significant anecdotal evidence pointing to the idea that Adam is the true name of Christ, not the least of which is Christian scripture which refers to him as the "Second Adam."  
 
+[*"The Name"* a Hebrew Holy name of God is "Ha'shem,"](hamd.md/he_laughs.html) a hidden reference to Eden.
+
 #It's not enough, we need more evidence.
 Ok fine, it's not enough.  In like kind, correlating between Spanish and Hebrew words, this time "the" instead of "is" we have the answer to your prayers.  Here "is" which has just been divinely defined in the names above is used to show the equality between "El" and "Ha."
 
