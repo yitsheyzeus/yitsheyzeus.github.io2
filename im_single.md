@@ -1,6 +1,6 @@
 # I'm Single
 
-None of the patterns that link together our cultural art into a Matrix of Biblical light are more intricate than the one that is designed to introduce the Messiah.  Bridging *The Fifth Element* with Shakespeare tied together with the *The Hand of God* yields the key to a "Cypher" that ties the Holiest number of all, 14, to Adam Dobrin.  
+None of the patterns that link together our cultural art into a Matrix of Biblical light are more intricate than the one that is designed to introduce the Messiah.  Bridging *The Fifth Element* with Shakespeare tied together with the *The Hand of God* yields the key to a "Cypher" that ties the Holiest number of all, 14, to Adam Dobrin.  This is the place that tells us Sinbad is made up of two elements, one letter ("n") and one person.  All indexed and tied together by The Fifth Adam.  It's the answer to the movie, and Shakespeare's question.  Not "What is the Matrix?" but rather "To B or not to Be?"
 
 If "Iran" and "Amish" haven't convinced you that the Lord is writing truth not only in the product of our civilization--the heart of the word Earth (that's art), perhaps my personal favorite abstraction of *walking on water* will show you that it is the creation of America itself that is God's greatest miracle.  He's marked it with the discovery of the continent, his AM at the beginning of it's name, and a tie between the name "Christ" and my intials indexed to 14.
 
