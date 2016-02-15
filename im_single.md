@@ -20,7 +20,7 @@ Don't you? don't you?
 
 Carly Simon and ((ish)), ((I'm so vain)) 
 ```
-It's a good example of ((ish)), and a tie to the [Music of Revelation.](music_saves_all_souls.html)
+It's a good example of ((ish)), and a tie to the [Music of Revelation.](music_saves_all_souls.html).  More than just soothing, the songs are going to *save all souls.*
 
 ##WOW, *Walking on Water* in the year ADIB
 A sailor like Sinbad, Christopher Columbus sailed the ocean blue to bring democracy to you.  He did this in the year 1492, which translates roughly to "ADIB" (but probably only to me).  At the very beginning of America, when the "I AM er I go" decided to right the past outcome of the Rise of the (previously) Third Reich and focus on *liberty and justice for all.*  Creating a new continent ensued, one that appears to look a lot like a bird.  This is conjecture, *mythology of Adam* but it ties to PKD's *The Man in the High Castle,* who in turn ties to the *Man in the Iron Mask* and *Repunzel.*  
