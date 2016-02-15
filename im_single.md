@@ -81,7 +81,7 @@ John 14:9
 
 As a tie between "AD" and "Y" we have the question *"Why A.D.?"* which does a good job of linking *The Hand of God* which is "yad," In Hebrew to both my initials here, and the [question "why"](the_letter_why.html) that it also well illustrates.  The answer is of course, it's the Hand of God.  
 
-![](yad-ds.gif)
+![](yad-scale-100.gif)
 
 To answer the question with more conviction and authority, I'd cite another "n" reference, this time to the 14th chapter of John.
 
