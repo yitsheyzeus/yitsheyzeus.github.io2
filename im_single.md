@@ -8,7 +8,11 @@ There are a number of reasons for this Chapters title, it's informatively openin
 
 Her connection aside, we have the apocalyptic revelation that the Temples of Solomon and Hotels of Atlantis are real world and Biblical metaphors for Heaven.  More than one.  Last at the Temple Mount, the *Do me of the Rock*.  The Rock is Eden... where we are, and is literally in the word Heaven, "He rock" in Hebrew and English.  These metaphorical representations tell us a story of Heaven being created over and over, as we have re-enacted the story of Eden.  This is the last re-enactment, as Dave Matthews sings "the last stop."
 
+ADonIS, discussed more below, sheds great light on *my belief* that I won't have any more dating trouble soon.  We will see, but there's definitely songs about it.  This stuff is tongue-in-cheek, but it's also part of the apocalypse, there's history and scripture being unleashed by my story.
 
+```
+
+```
 
 ##WOW, *Walking on Water* in the year ADIB
 A sailor like Sinbad, Christopher Columbus sailed the ocean blue to bring democracy to you.  He did this in the year 1492, which translates roughly to "ADIB" (but probably only to me).  At the very beginning of America, when the "I AM er I go" decided to right the past outcome of the Rise of the (previously) Third Reich and focus on *liberty and justice for all.*  Creating a new continent ensued, one that appears to look a lot like a bird.  This is conjecture, *mythology of Adam* but it ties to PKD's *The Man in the High Castle,* who in turn ties to the *Man in the Iron Mask* and *Repunzel.*  
