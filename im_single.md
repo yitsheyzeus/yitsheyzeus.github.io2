@@ -11,8 +11,16 @@ Her connection aside, we have the apocalyptic revelation that the Temples of Sol
 ADonIS, discussed more below, sheds great light on *my belief* that I won't have any more dating trouble soon.  We will see, but there's definitely songs about it.  This stuff is tongue-in-cheek, but it's also part of the apocalypse, there's history and scripture being unleashed by my story.
 
 ```
+And all the girls dreamed that they'd be your partner
+They'd be your partner, and...
 
+You're so vain, you probably think this song is about you
+You're so vain, I'll bet you ((know)) this song is about you
+Don't you? don't you?
+
+Carly Simon and ((ish)), ((I'm so vain)) 
 ```
+It's a good example of ((ish)), and a tie to the [Music of Revelation.](music_saves_all_souls.html)
 
 ##WOW, *Walking on Water* in the year ADIB
 A sailor like Sinbad, Christopher Columbus sailed the ocean blue to bring democracy to you.  He did this in the year 1492, which translates roughly to "ADIB" (but probably only to me).  At the very beginning of America, when the "I AM er I go" decided to right the past outcome of the Rise of the (previously) Third Reich and focus on *liberty and justice for all.*  Creating a new continent ensued, one that appears to look a lot like a bird.  This is conjecture, *mythology of Adam* but it ties to PKD's *The Man in the High Castle,* who in turn ties to the *Man in the Iron Mask* and *Repunzel.*  
