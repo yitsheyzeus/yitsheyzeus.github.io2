@@ -20,7 +20,7 @@ Don't you? don't you?
 
 Carly Simon and ((ish)), ((I'm so vain)) 
 ```
-It's a good example of ((ish)), and a tie to the [Music of Revelation.](music_saves_all_souls.html).  More than just soothing, the songs are going to *save all souls.*  Just below, you will see my tie between Nero and Elvis--over Rock'n roll ([[through music]](music_saves_all_souls.html)  and [[the race/lam/run of God]](the_lamb_of_god.html)), and V*AD*er's connection to suicide through his sacrifice to save the Universe from the ((Empire)).
+It's a good example of ((ish)), and a tie to the [Music of Revelation.](music_saves_all_souls.html).  More than just soothing, the songs are going to *save all souls.*  Just below, you will see my tie between Nero and Elvis--over Rock'n roll ([[through music]](music_saves_all_souls.html)  and [[the race/lam/run of God]](the_lamb_of_god.html)), and [V*AD*er's connection to suicide](the_encl.html) through his sacrifice to save the Universe from the ((Empire)).
 
 ```
 Now I see that you and me were never meant
