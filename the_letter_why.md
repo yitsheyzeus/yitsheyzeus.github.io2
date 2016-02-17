@@ -122,6 +122,8 @@ There is a recurring theme in the characters of the Bible that I have a large af
 
 ##Isaac, son of Abraham
 
+##Samson
+
 ##Isaiah son of Am**oz**
 
 ##Yankee Doodle, nephew of *Samael*
