@@ -50,7 +50,9 @@ standing before the throne and before the Lamb.
 
 Revelation 7
 
-He was holding a little scroll, which lay open in his hand. He planted his right foot on the sea and his left foot on the land.
+He was holding a little scroll, which lay open in his hand.
+He planted his right foot on the sea and his left 
+foot on the land.
 
 Revelation 10
 ```
