@@ -121,3 +121,13 @@ OUI, "we are."  That's the lil'ah (of Delilah) *walking on water.*  *Pa u art of
 
 And I think it's writring like this that has turned people off for so so long, I see it *filled with **#EarlyLight***.  Did I start a sentence with "and?"  It's for effect.
 
+```
+ Out there, no food or drink
+ How many days do you think youd last
+ On your diamonds and your pearls?
+ Im not a king, no, not a hero, not a fool
+ I'm not perfect, I'm flesh and bone
+ And I'm exactly what you need
+
+Dave Matthews Band, Squirm
+```
