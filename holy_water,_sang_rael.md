@@ -29,7 +29,7 @@ From the S E A of Eden, to the multitude of Revelation.
          e v d                 
          t e a                  Shekinah        <-----|
          h   m                  Everyone        <-----|
-                                A ...damah, *ll*ah, Asherah
+                                A ...damah, A*ll*ah, Ash*er*ah
  ```
                                 
 Taylor Momsen sings that "everyone must be saved."  There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  
