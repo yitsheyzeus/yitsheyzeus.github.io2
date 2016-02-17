@@ -124,3 +124,5 @@ This is "Grey Light," which ties Grey Skull to Gene Grey, Grey Street, and a ser
 There's an entire chapter dedicated to the "ran" of these elements, see [The Lamb of God.](the_lamb_of_god.md)
 
 ![](chemical-symbol-uranium_Square%20Crop.jpg)
+
+#The **Son of**'s of God
