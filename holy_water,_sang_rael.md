@@ -62,6 +62,14 @@ And so, walking on water, the Lamb gives you a little scroll.
 
 Add in the Plague of Water to Blood (from Exodus, a "Blessing in Disguise"), and the multitude turns to the family of Christ.  I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood.  
 
+```
+But the LORD hardened Pharaoh's heart and he would not 
+listen to Moses and Aaron, just as the LORD had said to Moses.
+
+Exodus 9:12
+```
+*Hardening* is a computer term for increasing security.  This is a reference to hiding this world in Heaven, keeping us from being seen.  Hardening the security of the world.
+
 I have a message to Taylor, **you're right** might you see how you can be the match that lights Jim Morrison's fire.
 
 That's "More, I son.."  
