@@ -22,6 +22,8 @@ Gensis 1:10
 You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel*](https://adjkjc.gitbooks.io/time-and-chance/content/the_tower_of_babel.html).
 
 ##Mary and the Whymar Republic
+
+Mar is **sea** in Spanish, there's significant Biblical correlation between Spanish words and hidden meaning, like [Navidad and Christmas](the_letter_why.html) and the names [Jesus and Elisha.](the_tower_of_babel.html)
 ```
 From the S E A of Eden, to the multitude of Revelation.
          e v d                 
