@@ -113,3 +113,4 @@ Revelation 2:27
 
 The story goes that I said Jesus couldn't exist, because he would *never **rule** for a thousand years with an Iron Rod*.  Being born in America, as Queen sings "here we are, born to be Kings" I changed my mind about the rod, when it became a key to the Doors.
 
+The Ash of Adam: my tattoo of Eden; Adam, Sigma (for the summation of everyone) in the Heart.
