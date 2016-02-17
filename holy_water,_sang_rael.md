@@ -89,7 +89,7 @@ I have a message to Taylor, **you're right** might you see how you can be the ma
 
 That's "More, I son.."  
 
-I mentioned her song, **Burn**, she says she "can't find her door" links to another message of Christ.   The Iron Rod read backwards is tied to the band The Doors; named after gateways to Heaven that are secretly prophesied to come .... soon.  I haven't seen mine either, but the message of the Rod is that it is juxtaposed to Aarons "let my people go" through the periodic table symbol for Iron..
+I mentioned her song, **Burn**, she says she "can't find her door" which links to another message of Christ.   The Iron Rod read backwards is tied to the band The Doors; named after gateways to Heaven that are secretly prophesied to come .... soon.  I haven't seen mine either, but the message of the Rod is that it is juxtaposed to Aarons "let my people go" through the periodic table symbol for Iron..
 
 ![](elements_26_iron_tile_coaster.jpg)
 
