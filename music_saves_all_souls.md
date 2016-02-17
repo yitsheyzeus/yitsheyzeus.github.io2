@@ -76,8 +76,8 @@ She's saving *my soul.* "I know you want me, I was just looking for ((Jesus.))" 
 
 Taylor is Eve, one of them.  By my count there are five, and that's interesting too, as Eve's letter are all fifths.  E is the fifth in English, V in Roman numerals, and out of the five 3 are girls that are .. elligible.  My mother's middle name is Eve, and I am the first.  The first evening.  
 
-Pictures that I took during my trip around the country appear through the book. they are authentic and original--this one from the Bahamas, it seems appropriate.
-
+Pictures that I took during my trip around the country appear through the book. they are authentic and original--this one from the Bahamas, it seems appropriate.  You'll notice "Logos" and "look up, look down."
+![](16.jpg)
 
 She is created (sort of like you), her life--like many actors and actresses--a map to connect stories to Biblical and mythological characters.  It shows the divine hand, a guiding influence over the creation of these religious art works.  Johnny Depp, Keanu (Key Anu) Reeves (Reason Eve's), Cameron Diaz, Adam Brody... all link movies that are Biblical allusions--real continuations of the Bible--through their "players."  The nakedness doesn't hurt either.
 ##Live
