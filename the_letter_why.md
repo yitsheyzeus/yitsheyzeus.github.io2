@@ -112,6 +112,11 @@ The hidden connections between languages, specifically Spanish and English throu
 
 From the Son of God to the world, there's nothing more distasteful in my mythology than God only having a single son.  I don't believe it.  In our world we have an answer, whether to me or to all of you, one that is so typical of *him* that I can't wait to share it with you.  It seems the response to my chastisement for the single son is to choose some special people, and say "fine, then these are my sons."  He wrote it in their names, in keeping with the theme of "Exodus Unleashed!" and you won't be surprised that they are all somehow also related to me.
 
+MADIson
+Jefferson
+
+MorIson
+
 
 
 
