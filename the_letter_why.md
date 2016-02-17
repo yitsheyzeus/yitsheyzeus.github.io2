@@ -134,6 +134,8 @@ Nothing can give you more insight into the secrets of religion relating to Chris
 
 ##Joshua, son of (a) *Nun*
 
+##Isaac, son of Abraham
+
 ##Isaiah son of Am**oz**
 
 
