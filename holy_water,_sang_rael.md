@@ -23,7 +23,7 @@ You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel
 
 ##Mary and the Whymar Republic
 
-Mar is **sea** in Spanish, there's significant Biblical correlation between Spanish words and hidden meaning, like [Navidad and Christmas](the_letter_why.html) and the names [Jesus and Elisha.](the_tower_of_babel.html)
+Mar is **sea** in Spanish, there's significant Biblical correlation between Spanish words and hidden meaning, like [Navidad and Christmas](the_letter_why.html) and the names [Jesus and Elisha.](the_tower_of_babel.html).  It's about the *Bride of Revelation* being *All Humianity* allah the "sea" and "ah."
 ```
 From the S E A of Eden, to the multitude of Revelation.
          e v d                 
