@@ -138,4 +138,4 @@ Nothing can give you more insight into the secrets of religion relating to Chris
 
 ##Isaiah son of Am**oz**
 
-
+##Yankee Doodle, nephew of *Samael*
