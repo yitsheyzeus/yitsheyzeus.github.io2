@@ -131,7 +131,7 @@ There is a recurring theme in the characters of the Bible that I have a large af
 ###Jesus, son of *only* Mary (and God)
 
 ###Joshua, son of (a) *Nun*
-*Son of a gun*, is that a reference to the *Virgin* Mother in a convent, or does it actually mean "none?"  I'll have you know, none of the real life candidates for *Mary* are even close to as perfect as I--not Melissa, not Nanna, and not *Jan*et.  In January, I'll tell you RY.
+*Son of a gun*, is that a reference to the *Virgin* Mother in a convent, or does it actually mean "none?"  I'll have you know, none of the real life candidates for *Mary* are even close to as perfect as I--not Melissa, not Nanna, and not *Jan*et.  In January, I'll tell you R.Y
 
 ###Isaac, son of Abraham
 
