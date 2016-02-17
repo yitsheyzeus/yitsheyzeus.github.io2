@@ -109,6 +109,8 @@ Revelation 2:27
 
 ![](iron_rod_door.png)
 
+I should metion again, The Doors are singing about the Plagues of Egypt.  Listen to "Peace Frog," It's about *blood in the streets.*
+
 ###Doors, ***F***or ***e***veryone.  
 
 The story goes that I said Jesus couldn't exist, because he would *never **rule** for a thousand years with an Iron Rod*.  Being born in America, as Queen sings "here we are, born to be Kings" I changed my mind about the rod, when it became a key to the Doors.
