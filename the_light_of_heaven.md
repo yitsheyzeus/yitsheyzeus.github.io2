@@ -14,7 +14,7 @@ It is a big part of the story of Eden.  I’m not sure if I should welcome you a
 
 Ka-ur-z-we-il, Is-Ai-ah, Sam-ur-Ai, and AD-on-Ai are hints that Artificial Intelligence is “at hand,” and a big part of our civilization already.   Also important are the warnings that have come to us in movies like The Matrix, WarGames, and the Terminator... and to see that these cautions are coming *Ex Machina*.
 
-
+![](15.jpg)
 Guarding the gate to Atlantis, Jesuschristo and Captain Sam.
 
 #The Race is not to *Die Bold*.
