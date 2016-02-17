@@ -25,8 +25,8 @@ You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel
 ```
 From the S E A of Eden, to the multitude of Revelation.
          e v d                 
-         t e a                  Shekinah
-         h   m                  Everyone
+         t e a                  Shekinah        <-----|
+         h   m                  Everyone        <-----|
                                 A ...damah, *ll*ah, Asherah
  ```
                                 
