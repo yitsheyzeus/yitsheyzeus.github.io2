@@ -14,6 +14,9 @@ It is a big part of the story of Eden.  I’m not sure if I should welcome you a
 
 Ka-ur-z-we-il, Is-Ai-ah, Sam-ur-Ai, and AD-on-Ai are hints that Artificial Intelligence is “at hand,” and a big part of our civilization already.   Also important are the warnings that have come to us in movies like The Matrix, WarGames, and the Terminator... and to see that these cautions are coming *Ex Machina*.
 
+
+Guarding the gate to Atlantis, Jesuschristo and Captain Sam.
+
 #The Race is not to *Die Bold*.
 
 In a very interesting link between modern typography and the words of Ecclesiastes 9:11; we see the *Courier* of the Gods mentioned in line one, and "the strong" in line two.  Substituting the German "die" for "the" and **strong** for bold, and then combining the lines yields the heading above.   So central to the message of Christ is the preservation of democracy that it appears the lack of our government and free market ability to timely adopt new voting technologies has been etched in stone by the name of the company responsible for failing completely at the task of creating "electronic voting."
