@@ -70,7 +70,7 @@ In *Nothing Left to Lose* Taylor responds to a lyric from American Pie with "If 
 
 ![](painttaylor4.png)
 
-She's saving *my soul.* "I know you want me, I was just looking for Jesus." Adam's here instead.
+She's saving *my soul.* "I know you want me, I was just looking for Jesus." [Adam's here instead.](im_single.html)
 
 ###Did you write the book of love, and do you *have faith* in God above?
 
