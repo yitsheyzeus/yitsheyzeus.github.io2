@@ -32,7 +32,7 @@ From the S E A of Eden, to the multitude of Revelation.
                                 A ...damah, A*ll*ah, Ash*er*ah
  ```
                                 
-Taylor Momsen sings that "everyone must be saved."  There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  Asherah of course, is discussed in [*He Laughs, again*](hamd.md/he_laughs.html)
+Taylor Momsen sings that "everyone must be saved."  There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  Asherah of course, is discussed in [*He Laughs, again*](hamd.md/he_laughs.html).
 
 ```
 The dragon stood on the shore of the sea. And I saw a beast 
