@@ -117,4 +117,4 @@ The Ash of Adam: my tattoo of Eden; Adam, Sigma (for the summation of everyone) 
 
 ![](10305058_435832516553995_7582871175921861616_n.jpg)
 
-OUI, "we are."  That's the lil'ah (of Delilah) *walking on water.*  *Pa u art of Heaven (l).*
+OUI, "we are."  That's the lil'ah (of Delilah) *walking on water.*  *Pa u art of Heaven (l).*  And the road to Adamaskus is getting clearler.
