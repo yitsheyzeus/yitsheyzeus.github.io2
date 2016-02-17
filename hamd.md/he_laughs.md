@@ -8,7 +8,7 @@ This is what it appears he is laughing at, you see Isaac knew he was going to be
 
 ###Ha is SEM, the "Save Everyone Messiah"
 
-The word Messiah backwards reveals that "Ha" which is short for Isaac in my personal mythology because of his name's English meaning and the donation to Abraham.  This Ha comes up again during Christ's miraculous feeding of the multitude "two fish."  This miracle, as well as many other references to feeding the people, is a reference to a teaching... one you are about to receive.
+The word Messiah backwards reveals that "Ha" which is short for Isaac in my personal mythology because of his name's English meaning and the donation of those same letters to Abraham over what I consider a clear parallel to the crucifixion..  This Ha comes up again during Christ's miraculous feeding of the multitude "two fish."  This miracle, as well as many other references to feeding the people, is a reference to a teaching... one you are about to receive.
 
 The two fish are commonly held to be references to the two prophets, Elisha and Elija, and these two names are very special.  Like Jesus and Jeshurun they are equalities, using the English word "is" this time.  *El* is the proper name of the ancient Hebrew diety, and our equality here tells me that Isaac and El are one.  The Hispanic and English laughs, Ha and Ja are also related by the association of the two names.
 
