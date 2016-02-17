@@ -70,6 +70,21 @@ Exodus 9:12
 ```
 *Hardening* is a computer term for increasing security.  This is a reference to hiding this world in Heaven, keeping us from being seen.  Hardening the security of the world.
 
+```
+Then the Lord said to Moses, “Pharaoh’s heart is unyielding; 
+he refuses to let the people go. 15 Go to Pharaoh in 
+the morning as he goes out to the river.  
+
+Exodus 7:AD
+
+This is what the Lord says: By this you will know that 
+I am the Lord: With the staff that is in my hand 
+I will strike the water of the Nile, and it will be 
+changed into blood.
+
+Exodus 7:14
+```
+
 I have a message to Taylor, **you're right** might you see how you can be the match that lights Jim Morrison's fire.
 
 That's "More, I son.."  
