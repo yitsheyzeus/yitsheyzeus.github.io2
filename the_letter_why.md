@@ -113,10 +113,10 @@ The hidden connections between languages, specifically Spanish and English throu
 From the Son of God to the world, there's nothing more distasteful in my mythology than God only having a single son.  I don't believe it.  In our world we have an answer, whether to me or to all of you, one that is so typical of *him* that I can't wait to share it with you.  It seems the response to my chastisement for the single son is to choose some special people, and say "fine, then these are my sons."  He wrote it in their names, in keeping with the theme of "Exodus Unleashed!" and you won't be surprised that they are all somehow also related to me.
 
 ###MADIson
-Jefferson
-EDISon
-MorIson
-Carson (is that Johnny for Jesus?) and McCarthy
+###Jefferson
+###EDISon
+###MorIson
+###Carson (is that Johnny for Jesus?) and McCarthy
 
 
 
@@ -124,18 +124,18 @@ Nothing can give you more insight into the secrets of religion relating to Chris
 
 There is a recurring theme in the characters of the Bible that I have a large affinity to; they are the ones that you might see as clear Christ-candidates, and many of them are just that.  They also share another sad connection, most of them have either been born without parents, or their parents names imply that 
 
-##Adam, son of *only* God
+###Adam, son of *only* God
 
-##Jesus, son of *only* Mary (and God)
+###Jesus, son of *only* Mary (and God)
 
-##Joshua, son of (a) *Nun*
+###Joshua, son of (a) *Nun*
 *Son of a gun*, is that a reference to the Virgin Mother in a concent, or does it actually mean "none?"
 
-##Isaac, son of Abraham
+###Isaac, son of Abraham
 
-##Samson
+###Samson
 
-##Isaiah son of Am**oz**
+###Isaiah son of Am**oz**
 
 ##Yankee Doodle, nephew of *Samael*
 #This is the Dawning of the Age of Mars
