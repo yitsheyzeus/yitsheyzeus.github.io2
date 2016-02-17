@@ -32,6 +32,32 @@ From the S E A of Eden, to the multitude of Revelation.
                                 
 Taylor Momsen sings that "everyone must be saved."  There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  
 
+```
+The dragon stood on the shore of the sea. And I saw a beast 
+coming out of the sea.
+
+Revelation 13
+
+Then I saw another angel coming up from the east, having the 
+seal of the living God. He called out in a loud voice to the
+four angels who had been given power to harm the land and the 
+sea: 3 “Do not harm the land or the sea or the trees ...
+
+After this I looked, and there before me was a 
+great multitude that no one could count, from 
+every nation, tribe, people and language, 
+standing before the throne and before the Lamb.
+
+Revelation 7
+
+He was holding a little scroll, which lay open in his hand. He planted his right foot on the sea and his left foot on the land.
+
+Revelation 10
+```
+
+And so, walking on water, the Lamb gives you a little scroll.
+
+
 Add in the Plague of Water to Blood (from Exodus, a "Blessing in Disguise"), and the multitude turns to the family of Christ.  I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood.  
 
 I have a message to Taylor, **you're right** might you see how you can be the match that lights Jim Morrison's fire.
