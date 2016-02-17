@@ -5,8 +5,8 @@
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Music Saves All Souls](music_saves_all_souls.md)
 * The Story of Exodus
-* [The Letter Why](the_letter_why.md)
 * [The Tower of Babel](the_tower_of_babel.md)
+* [The Letter Why](the_letter_why.md)
 * [2 4 6 8 Adam-Who](2_4_6_8_adam-who.md)
 * [The Lamb of God](the_lamb_of_god.md)
 * [Bread for the Poor](bread_for_the_poor.md)
