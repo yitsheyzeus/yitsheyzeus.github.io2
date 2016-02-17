@@ -107,23 +107,6 @@ navI   dad
 ```
 The hidden connections between languages, specifically Spanish and English through is something that is highlighted repeatedly in what will become obviously an extension of religion.  *The Taming of the Shrew* is an allusion to Span-glish-rew, a combination of Spanish, English, and Hebrew that marks a linguistic key to a prescient and divine hand in the construction of all of our language.  It is the Tower of Babel in reverse, proving that the fire of Prometheus is actually language, and through a number of examples which equate the meaning of a number of like-meaning words, God shows that their connections were known about at the time of the writing of the Torah.  
 
-##This is the Dawning of the Age of Mars
-He-man, Darth Vader, Plague and Cat Stevens "power" growing in *Hair.*  Biblically links to Samson and Jesus, long hair is pervasive in cartoons and movies that are topically linking Christ to me.  Yitshak ties to Plague, of Hackers, and Exodus (looks like me).  Vader to "Lord Jesus" the "ad" and Adonai, Lord in Hebrew. The Letter He, is the Fifth in Hebrew, and an abbreviation for the name of God; also Prince Adam when he's "Clark Kent."  Kal-El and Jor-El part of a naming scheme decidedly Biblical, 
-
-J or El?  
-
-K right between the Gods.  That K is the key to the Time line of Ecc 9:11, Potassium, which expands to *Person of Time* and the middle of the element links to Chance, Uranus--and Uranium. 
-![](potassium.jpg)
-
-K is the pointer to El, see "L <" which is pretty much what religion, and then our planet is.  A pointer to Jesus.  Searching for Adam in Eden, swirling around Adamah; a number of symbols work for Earth. @, 0, and K.  Stargate adds "point of origin" to the possibilities, simply by turning the K 90 degrees, and then curling the l into an 0.  Now K is a pointer to Earth.  Searching for light?  It's all around you.
-
-This is "Grey Light," which ties Grey Skull to Gene Grey, Grey Street, and a series of pictures I drew in jail.. to share what I knew with the world the only way I could.  All this "grey" is a reference to the Pale Horse of the Apocalypse; once Rainbow Colored (like in Heaven is for real) *all the colors faded together... **to grey**.*
-
-
-
-There's an entire chapter dedicated to the "ran" of these elements, see [The Lamb of God.](the_lamb_of_god.md)
-
-![](chemical-symbol-uranium_Square%20Crop.jpg)
 
 #The "**Son of**'s" of God
 Nothing can give you more insight into the secrets of religion relating to Christ than actually being him.  I'm trying to share personal things, ones that you probably don't want to know about, in order to show you that they are literally written in the book.  It's not self-agrandizing, or self-serving, it's simply because it's there--and it's good "hard evidence" that you are reading a book written by the Christ himself.  I have family problems, much of it revolving around serious and well ingrained (I believe conditioned from *below*) disbelief in my ideas.  I can't even get my parents to read this book.  Not a word of it, their eyes glaze over and fists clench.  In all the time I've been writing, they are my biggest critics, and least helpful editors--they can't (and never could) give me a single detail or idea that wasn't clear or didn't make sense: "*all of it*" is all I ever got.
@@ -142,3 +125,20 @@ There is a recurring theme in the characters of the Bible that I have a large af
 ##Isaiah son of Am**oz**
 
 ##Yankee Doodle, nephew of *Samael*
+##This is the Dawning of the Age of Mars
+He-man, Darth Vader, Plague and Cat Stevens "power" growing in *Hair.*  Biblically links to Samson and Jesus, long hair is pervasive in cartoons and movies that are topically linking Christ to me.  Yitshak ties to Plague, of Hackers, and Exodus (looks like me).  Vader to "Lord Jesus" the "ad" and Adonai, Lord in Hebrew. The Letter He, is the Fifth in Hebrew, and an abbreviation for the name of God; also Prince Adam when he's "Clark Kent."  Kal-El and Jor-El part of a naming scheme decidedly Biblical, 
+
+J or El?  
+
+K right between the Gods.  That K is the key to the Time line of Ecc 9:11, Potassium, which expands to *Person of Time* and the middle of the element links to Chance, Uranus--and Uranium. 
+![](potassium.jpg)
+
+K is the pointer to El, see "L <" which is pretty much what religion, and then our planet is.  A pointer to Jesus.  Searching for Adam in Eden, swirling around Adamah; a number of symbols work for Earth. @, 0, and K.  Stargate adds "point of origin" to the possibilities, simply by turning the K 90 degrees, and then curling the l into an 0.  Now K is a pointer to Earth.  Searching for light?  It's all around you.
+
+This is "Grey Light," which ties Grey Skull to Gene Grey, Grey Street, and a series of pictures I drew in jail.. to share what I knew with the world the only way I could.  All this "grey" is a reference to the Pale Horse of the Apocalypse; once Rainbow Colored (like in Heaven is for real) *all the colors faded together... **to grey**.*
+
+
+
+There's an entire chapter dedicated to the "ran" of these elements, see [The Lamb of God.](the_lamb_of_god.md)
+
+![](chemical-symbol-uranium_Square%20Crop.jpg)
