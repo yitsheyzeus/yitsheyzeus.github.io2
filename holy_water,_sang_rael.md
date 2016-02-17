@@ -85,7 +85,7 @@ changed into blood.
 Exodus 7:14
 ```
 
-I have a message to Taylor, **you're right** might you see how you can be the match that lights Jim Morrison's fire.
+I have a message to Taylor, **you're right** might you see how you can be the match that lights Jim Morrison's fire.  For more on the *fire spreading* share this book with a neighbor, or read [*Music Saves All Souls*](music_saves_all_souls.html).
 
 That's "More, I son.."  
 
