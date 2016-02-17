@@ -131,3 +131,5 @@ And I think it's writring like this that has turned people off for so so long, I
 
 Dave Matthews Band, Squirm
 ```
+
+In God's capable hands, **"we are."**
