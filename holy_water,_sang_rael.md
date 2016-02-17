@@ -109,7 +109,7 @@ Revelation 2:27
 
 ![](iron_rod_door.png)
 
-I should [mention again, The Doors](behold,_the_burning_bush.html) are singing about the Plagues of Egypt.  Listen to ["Peace Frog," It's about *blood in the streets.*](https://www.bing.com/videos/search?q=peace+frog+the+doors&qpvt=peace+frog+the+doors&FORM=VDRE)
+I should [mention again, The Doors](behold,_the_burning_bush.html) are singing about the Plagues of Egypt.  Listen to ["Peace Frog," It's about *blood in the streets.*](https://www.bing.com/videos/search?q=peace+frog+the+doors&qpvt=peace+frog+the+doors&FORM=VDRE) A blessing in disguise, remember.
 
 ###Doors, ***F***or ***e***veryone.  
 
