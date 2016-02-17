@@ -91,6 +91,20 @@ That's "More, I son.."
 
 I mentioned her song, **Burn**, she says she "can't find her door" which links to another message of Christ.   The Iron Rod read backwards is tied to the band The Doors; named after gateways to Heaven that are secretly prophesied to come .... soon.  I haven't seen mine either, but the message of the Rod is that it is juxtaposed to Aarons "let my people go" through the periodic table symbol for Iron..
 
+```
+Then the LORD said to Moses, "Go to Pharaoh and say to him, 
+'This is what the LORD, the God of the Hebrews, says: "Let 
+my people go, so that they may worship me."
+
+Exodus 9:1
+
+And he shall rule them with a rod of iron; as the vessels of a
+potter shall they be broken to shivers: even as I received of 
+my Father. he shall.
+
+Revelation 2:27
+```
+
 ![](elements_26_iron_tile_coaster.jpg)
 
 ###Doors, ***F***or ***e***veryone.  
