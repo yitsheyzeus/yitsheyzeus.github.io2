@@ -24,10 +24,10 @@ You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel
 ##Mary and the Whymar Republic
 ```
 From the S E A of Eden, to the multitude of Revelation.
-          e v d                 
-          t e a                  Shekinah
-          h   m                  Everyone
-                                 A ...damah
+         e v d                 
+         t e a                  Shekinah
+         h   m                  Everyone
+                                A ...damah, *ll*ah, Asherah
  ```
                                 
 Taylor Momsen sings that "everyone must be saved."  There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  
