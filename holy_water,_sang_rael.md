@@ -119,4 +119,4 @@ The Ash of Adam: my tattoo of Eden; Adam, Sigma (for the summation of everyone) 
 
 OUI, "we are."  That's the lil'ah (of Delilah) *walking on water.*  *Pa u art of Heaven (l).*  And the "Road to **A**damaskus" is getting clearler.  For those that say I ((ish)) too much, believe... I **Amish**.
 
-And I think it's writring like this that has turned people off for so so long, I see it *filled with #EarlyLight.
+And I think it's writring like this that has turned people off for so so long, I see it *filled with #**EarlyLight***.
