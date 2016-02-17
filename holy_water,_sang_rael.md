@@ -105,10 +105,8 @@ my Father. he shall.
 Revelation 2:27
 ```
 
-![](elements_26_iron_tile_coaster.jpg)
-
+![](iron_rod_door.png)
 ###Doors, ***F***or ***e***veryone.  
 
 The story goes that I said Jesus couldn't exist, because he would *never **rule** for a thousand years with an Iron Rod*.  Being born in America, as Queen sings "here we are, born to be Kings" I changed my mind about the rod, when it became a key to the Doors.
 
-![](iron_rod.jpg)
