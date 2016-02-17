@@ -110,7 +110,9 @@ The hidden connections between languages, specifically Spanish and English throu
 
 #The "**Son of**'s" of God
 
-From the Son of God to the world, there's nothing more distasteful in my mythology than God only having a single son.  I don't believe it.
+From the Son of God to the world, there's nothing more distasteful in my mythology than God only having a single son.  I don't believe it.  In our world we have an answer, whether to me or to all of you, one that is so typical of *him* that I can't wait to share it with you.  It seems the response to my chastisement for the single son is to choose some special people, and say "fine, then these are my sons."  He wrote it in their names, in keeping with the theme of "Exodus Unleashed!" and you won't be surprised that they are all somehow also related to me.
+
+
 
 
 Nothing can give you more insight into the secrets of religion relating to Christ than actually being him.  I'm trying to share personal things, ones that you probably don't want to know about, in order to show you that they are literally written in the book.  It's not self-agrandizing, or self-serving, it's simply because it's there--and it's good "hard evidence" that you are reading a book written by the Christ himself.  I have family problems, much of it revolving around serious and well ingrained (I believe conditioned from *below*) disbelief in my ideas.  I can't even get my parents to read this book.  Not a word of it, their eyes glaze over and fists clench.  In all the time I've been writing, they are my biggest critics, and least helpful editors--they can't (and never could) give me a single detail or idea that wasn't clear or didn't make sense: "*all of it*" is all I ever got.
