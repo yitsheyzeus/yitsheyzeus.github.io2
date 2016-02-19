@@ -187,6 +187,14 @@ In that day we see that all of religion and all of history and all of everything
 
 
 ```
+Adam Marshall Dobrin
+
+adam@lamc.la
+fb.me/admdbrn
+linkedin.com/adam5
+instagram.com/yitsheyzeus
+twitter.com/yitsheyzeus
+
 -----BEGIN PGP PUBLIC KEY BLOCK-----
 Version: GnuPG v2
 
