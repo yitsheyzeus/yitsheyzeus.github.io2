@@ -209,17 +209,19 @@ This is one of the only "reverse" examples of langolier that I have found, but i
 "POLICE" (the word) is part of the story of Exodus, it's relation to America and Christ, and to the proof that is before your eyes.  
 
 
-##Holy Purpose
+#Holy Purpose
 
 Our entire legal system is broken, and it's being highlighted by God as the primitive and archaic monstrosity that it has begun.  After being forcibly starved by a malnutricious diet that is the status quo in America; and sleep deprived systematically by the jail and court system; Judges around the country have the gaul to ask defendants: "are you taking this plea of your own volition?"  Bound in shackles and unable to write clearly, I signed my name to a plea which sparked an almost immediate race against this system which secretly was designed to cripple the savior of humanity.  I was forced to run, we Koran--I am told, out of fear of continued incarceration by a system which had already violated my freedom to no end.  These are not problems that are unique to me, or to Florida; they are American problems that surround a system that has become nothing less than the destruction of American freedom, a retribution system Biblically highlight as worse than *an eye for an eye.*
 
-#McCarthy and McFly
+The suggestions on this page are not really mine, they are ones that I have divined from scripture, our history, and my life's struggle.  While I agree with them, I take special note to say that in my mind these are not my opinions they are part of the mandate of the return of the Messiah.  In the rest of this chapter and the next I discuss very pertinent and near-sight issues.  Because of the horizon of my sight, these things seem to me to be temporary stop-gaps; they are things we can do right now, with the technology and system we have available to us.  While I am fervent that they must be done, this is not my passion, **I dream of a time when I don't need to preach about "feeding the poor," "not starving the innocent" and demanding that we as individuals take notice and stand up for injustices that we see around us.**  I've gone through a very difficult struggle, and I've asked many people for help; we have a problem as a society--we don't seem to see past our tiny families.  My family needs to be much larger to save me--and you.
+
+##McCarthy and McFly
 
 This story of a *car parting a sea* (dividing the world over the truth of Jesus Christ's life) links the Judge in my case to Joseph McCarthy, her namesake.  This ties the parted red sea to the cold war; one which is decidedly still being fought over the color red.  This color symbolizes Hell, love, and the charity that is intrinsic in the message of Christianity.  Old McDonald and Animal Farm assure me that "some pigs are more equal than others," and this series of Mc's is a very messianic clue to God's link between names and the truth.
 
 Communism and democracy are being juxtaposed along side the colors that separate their flags.  Blue and Red mark the sword and shield of the apocalypse; the Salvation Army and Red Cross against state healthcare from Blue Cross and Blue Shield.  This symbolism is clearly influenced from above, to start a discussion about how much less advanced our society is than we believe.  
 
-#Heal the Sick
+##Heal the Sick
 
 Universal Healthcare is more than a good idea, its moral mandate to *heal the sick.*  We need to wake up and see that these things are not suggestions, they are the stuff of actually being civilized instead of in a process of "civilization."  Greed has blinded the word the obvious truth; and coming from an insurance background it is easy for me to explain how wrong the Obamacare implentation has been.
 
