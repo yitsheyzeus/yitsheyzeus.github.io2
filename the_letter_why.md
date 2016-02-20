@@ -39,9 +39,15 @@ God's message is that there will be no Hell, and that time travel should only be
 
 #Who-ah America?
 GI's, Pacino, **Den**zel Little Cindy-Who and many of you ask yourselves a question about Jesus Christ every time you ask who-ah?  It's a joke, about hiding Adam, in Eden or in Matthew or in America *the world* is responsible for not knowing who I am yet.  Not what you wanted?  It's not my plan, look up.
+
 ##Yes,hua
+Yeshua was a common alternative form of the name יְהוֹשֻׁעַ ("Yehoshuah" – Joshua) in later books of the Hebrew Bible and among Jews of the Second Temple period. Meaning "salvation" in Hebrew, it was also the most common form of the name Jesus 
+
 ##Yahua
-##Welcome to Adamah.  That's Earth in Hebrew.
+ 
+a name of God, transliterated by scholars from the Tetragrammaton and commonly rendered Jehovah. This graphic explains hwo it is a recursive acronym, very similar to GNU.  GNU's *Not Unix* and God is revealing a special place in his SOL for oepn source, and transparency.
+
+###Welcome to Adamah.  That's Earth in Hebrew.
 
 ##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
