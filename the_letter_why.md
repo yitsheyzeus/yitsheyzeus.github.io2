@@ -49,7 +49,7 @@ a name of God, transliterated by scholars from the Tetragrammaton and commonly r
 
 ![](1977103_407307386073175_1080548721_n.jpg)
 
-###Welcome to Adamah.  That's Earth in Hebrew.
+###Welcome to Adamah.  [That's Earth in Hebrew.](https://adjkjc.gitbooks.io/time-and-chance/content/the_tower_of_babel.html)
 
 ##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
