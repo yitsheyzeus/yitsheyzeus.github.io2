@@ -45,7 +45,7 @@ Yeshua was a common alternative form of the name יְהוֹשֻׁעַ ("Yehoshua
 
 ##Yahua
  
-a name of God, transliterated by scholars from the Tetragrammaton and commonly rendered Jehovah. This graphic explains hwo it is a recursive acronym, very similar to GNU.  GNU's *Not Unix* and God is revealing a special place in his SOL for oepn source, and transparency.
+a name of God, transliterated by scholars from the Tetragrammaton and commonly rendered Jehovah. This graphic explains hwo it is a recursive acronym, very similar to GNU.  GNU's *Not Unix* and God is revealing a special place in his SOL for oepn source, and transparency.  Behold, the "ineffible name."  It's all about Adam.
 
 ###Welcome to Adamah.  That's Earth in Hebrew.
 
