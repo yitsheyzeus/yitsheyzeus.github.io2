@@ -37,7 +37,10 @@ I was born, as I've said, on the date of the Catholic Feast commemorating the "I
 ###*"The walls and halls will fade away... they will fade... away."* -Dave "J." Matthews
 God's message is that there will be no Hell, and that time travel should only be used in extreme situations; like saving a planet from destruction.  This is the meaning of the arrow pointing up (towards Heaven) and forward (to the future) which graces both the signs of Mars and Saggitarius.  I will only mention my middle name is Marshall, and that Dave doesn't know me.
 
-
+#Who-ah America?
+##Yes,hua
+##Yahua
+##Welcome to Adamah.  That's Earth in Hebrew.
 
 ##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
