@@ -43,9 +43,11 @@ GI's, Pacino, **Den**zel Little Cindy-Who and many of you ask yourselves a quest
 ##Yes,hua
 Yeshua was a common alternative form of the name יְהוֹשֻׁעַ ("Yehoshuah" – Joshua) in later books of the Hebrew Bible and among Jews of the Second Temple period. Meaning "salvation" in Hebrew, it was also the most common form of the name Jesus 
 
-##Yahua
+##Ya,hua
  
 a name of God, transliterated by scholars from the Tetragrammaton and commonly rendered Jehovah. This graphic explains hwo it is a recursive acronym, very similar to GNU.  GNU's *Not Unix* and God is revealing a special place in his SOL for oepn source, and transparency.  Behold, the "ineffible name."  It's all about Adam.
+
+![](1977103_407307386073175_1080548721_n.jpg)
 
 ###Welcome to Adamah.  That's Earth in Hebrew.
 
