@@ -38,6 +38,7 @@ I was born, as I've said, on the date of the Catholic Feast commemorating the "I
 God's message is that there will be no Hell, and that time travel should only be used in extreme situations; like saving a planet from destruction.  This is the meaning of the arrow pointing up (towards Heaven) and forward (to the future) which graces both the signs of Mars and Saggitarius.  I will only mention my middle name is Marshall, and that Dave doesn't know me.
 
 #Who-ah America?
+GI's, Pacino, **Den**zel Little Cindy-Who and many of you ask yourselves a question about Jesus Christ every time you ask who-ah?  It's a joke, about hiding Adam, in Eden or in Matthew or in America *the world* is responsible for not knowing who I am yet.  
 ##Yes,hua
 ##Yahua
 ##Welcome to Adamah.  That's Earth in Hebrew.
