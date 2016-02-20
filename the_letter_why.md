@@ -52,7 +52,7 @@ a name of God, transliterated by scholars from the Tetragrammaton and commonly r
 ###Welcome to Adamah.  [That's Earth in Hebrew.](https://adjkjc.gitbooks.io/time-and-chance/content/the_tower_of_babel.html)
 
 ##Dr. Who?
-Exactly.  "And like that, he was gone."
+Exactly.  "And like that, he was gone."  (That's a Usual Suspects reference, if you don't know it, watch it)
 
 ##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
