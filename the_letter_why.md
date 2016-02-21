@@ -162,7 +162,7 @@ Don't say we never thanked the sea, This is a big Y, the Fly's eye, in my story 
 
 World changing stuff, the kind of thing you'd hope he has prepared for.  He has.
 
-I have Mc's for Old McDonald and McCarthy, also. tbc
+I have Mc's for Old McDonald and McCarthy, also. For now, realize that both Rachel (a Patriarch's wife) and Amy are now "Biblical."
 
 ##LODI DODI, we'd likes to bring Mary and I to **the Party**
 Since LODI's name links Cameron Diaz and Snoop Dogg to a movie about the inner workings of the mind of God; and possessing people--as he does--that leaves DODI as the Kabbahlistic reference.  I'll look it up later.
