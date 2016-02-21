@@ -166,6 +166,9 @@ I have Mc's for Old McDonald and McCarthy, also. tbc
 ##LODI DODI, we'd likes to bring Mary and I to **the Party**
 Since LODI's name links Cameron Diaz and Snoop Dogg to a movie about the inner workings of the mind of God; and possessing people--as he does--that leaves DODI as the Kabbahlistic reference.  I'll look it up later.
 
+*We didn't cause much trouble... or bother many...*
+
+
 #The "**Son of**'s" of God
 
 From the Son of God to the world, there's nothing more distasteful in my mythology than God only having a single son.  I don't believe it.  In our world we have an answer, whether to me or to all of you, one that is so typical of *him* that I can't wait to share it with you.  It seems the response to my chastisement for the single son is to choose some special people, and say "fine, then these are my sons."  He wrote it in their names, in keeping with the theme of "Exodus Unleashed!" and you won't be surprised that they are all somehow also related to me.
