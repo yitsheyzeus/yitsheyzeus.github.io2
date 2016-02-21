@@ -29,7 +29,11 @@ On the coordinate plane, the one explained by Yeast, and Jesus, place a J right 
 Heaven of Pews, Heaven of Twos
 Build it.
 
+KENT u CK Y
 
+venus clothed in the sun
+
+R I B To Be or not to B
 
 
 {% endif %}
