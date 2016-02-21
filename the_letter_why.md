@@ -56,7 +56,7 @@ Exactly.  "And like that, he was gone."  (That's a Usual Suspects reference, if 
 
 #Of age Cindy-Who, where are you?
 
-
+![](untitled.png)
 ##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
 
