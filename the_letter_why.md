@@ -157,6 +157,7 @@ Samson's hair, and Isaac's laugh.
 
 
 ###Mar-Thank you from the McFly guy.
+
 Don't say we never thanked the sea, This is a big Y, the Fly's eye, in my story of constant conversation with God, I spent lots of time expalining to myself--and the invisible onlookers in Heaven why I knew God wasn't human--couldn't be.  You see, God thinks like Fly's see--massively parallel--like a SunSparc chip.  He can see into our thoughts all at once and all across the world; and I've evidence all of the world that he's doing that actively.  He's building a safety for the apocalypse, one that will make sure we are safe and thinking clearly as we learn the secrets of not only religion; but the origins of life and god and everything around us.
 
 World changing stuff, the kind of thing you'd hope he has prepared for.  He has.
