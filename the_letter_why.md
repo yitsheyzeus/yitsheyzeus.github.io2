@@ -138,7 +138,9 @@ The hidden connections between languages, specifically Spanish and English throu
 
 ###If AM Y Adam's and Rachel McAdams didn't just wake you up, I don't know what will.
 
-It's about time we met Adam, don't you think?  Amy, Amish, America... lot's of words begin with AM.  The "I AM" began his first words in Genesis with it; and it's a link to a hidden language, and a map through time within words and names.  The I AM began America to deliver us from the slavery of hidden technology and secret government.  *Here we are* as Queen sings, born to be Kings...
+It's about time we met Adam, don't you think?  Amy, Amish, America... lot's of words begin with AM.  The "I AM" began his first words in Genesis with it; and it's a link to a hidden language, and a map through time within words and names.  The I AM began America to deliver us from the slavery of hidden technology and secret government.  *Here we are* as Queen sings, born to be Kings..
+
+.
 
 God writes messages in movies, he marks these messages by "theming" actors to link together stories that we might otherwise not realize are somehow together.  A good example is Cameron Diaz, and *Being John Malkovich, There's Something About Mary, and Charlie's Angels.*  Other great examples are Johnny Depp and Keanu Reeves: and everything they've ever been in.  You'll note Johnny matches the J of Jesus, Johnny be good, and Johnny 5 (who is alive!). Key Anu; links to this ((ish)) of the Shehekiyanu.
 
