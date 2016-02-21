@@ -59,7 +59,12 @@ Imagine "Jimmy" Morrison is singing through time to you, begging you to do somet
 
 ![](untitled.png)
 
+```
+Can you tell me what she said?
+What was that promise that you made?
 
+The Doors, Touch Me
+```
 ##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
 
