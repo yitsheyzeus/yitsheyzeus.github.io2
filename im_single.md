@@ -133,9 +133,18 @@ Adonis also reminds us that *"thinking every song is about you, out you, don't y
 
 ##AD on Ai
 
-Adonai is the verbal parallel to Yahweh andJehovah. Adonai is plural; the singular is adon. In reference to God the plural Adonai is used. When the singular adon is used, it usually refers to a human lord. Adon is used 215 times to refer to men. Occasionally in Scripture and predominantly in the Psalms, the singular adon is used to refer to God as well (cf. Exd 34:23). To avoid contravening the commandment “Thou shalt not take the name of the LORD thy God in vain” (Exd 20:7), sometimes Adonai was used as a substitute forYahweh (YHWH). Adonai can be translated literally as, “my lords’ ” (both plural and possessive).
+Adonai is the verbal parallel to Yahweh and Jehovah. Adonai is plural; the singular is adon. In reference to God the plural Adonai is used. When the singular adon is used, it usually refers to a human lord. Adon is used 215 times to refer to men. Occasionally in Scripture and predominantly in the Psalms, the singular adon is used to refer to God as well (cf. Exd 34:23). To avoid contravening the commandment “Thou shalt not take the name of the LORD thy God in vain” (Exd 20:7), sometimes Adonai was used as a substitute forYahweh (YHWH). Adonai can be translated literally as, “my lords’ ” (both plural and possessive).
 
 The word adonai comes from the unused root אדן ('dn), of which the meaning is disputed, says BDB Theological Dictionary, and lists the following proposals: Some say it's comparable to the Assyrian word adannu, meaning firm or strong, and the associated adverb adannis means strongly or exceedingly. Others say it may have to do with a Persian word meaning firm or fasten, and thus it means to determine, hence command, hence rule. Others still propose relations to an Arabic verb that means to be obedient or cause obedience, hence govern and rule. This verb is thought to have to do with the Hebrew word דין (din), meaning to judge, and thus with the name דן (Dan), and also makes the best candidate morphologically spoken.
+
+Thinking about the implications of this in reference to Artificial Intelligence and Lord Vader might shed light on the newest rendition of John Connor.  To me, the man/machine link between the movies and the ancient Hebrew name is clear.  
+
+```
+I thought this place was an ((Emperor)).
+Now I'm relaxed, ((and sure)).
+
+Matchbox 20 and ((ish))
+```
 
 ##AD on *"I'm Single"*
 
