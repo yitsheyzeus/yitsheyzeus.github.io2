@@ -134,7 +134,7 @@ navI   dad
 The hidden connections between languages, specifically Spanish and English through is something that is highlighted repeatedly in what will become obviously an extension of religion.  *The Taming of the Shrew* is an allusion to Span-glish-rew, a combination of Spanish, English, and Hebrew that marks a linguistic key to a prescient and divine hand in the construction of all of our language.  It is the Tower of Babel in reverse, proving that the fire of Prometheus is actually language, and through a number of examples which equate the meaning of a number of like-meaning words, God shows that their connections were known about at the time of the writing of the Torah.  
 ##The Wedding (*of the Lamb*) Crashers and Marty McFly
 
-![](theadamses.jpg)
+![The Adams'es, Rachel and Amy](theadamses.jpg)
 
 ###If AM Y Adam's and Rachel McAdams didn't just wake you up, I don't know what will.
 
