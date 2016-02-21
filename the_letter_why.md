@@ -145,7 +145,7 @@ shehekiyanu, vekiyimanu
 say heck I'm Anu, the key is I knew!
 
 lazman haze
-Lazarus has Hazel Eyes.
+Lazarus has Hazel Eyes...
 
 Samson's hair, and Isaac's laugh.
 
