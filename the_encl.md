@@ -23,7 +23,7 @@ I'm El (c the l in K), that's a name for the Jewish creator deity also.  Well, I
 ###J is for going back in time, and bringing everyone to Heaven.
 On the coordinate plane, the one explained by Yeast, and Jesus, place a J right in the middle, and it's a map... one that explains how to get to salvation, if you are "Us,"  I mean J is Us, Jesus.  We might be right in the middle of that J, right before the curve towards Heaven.
 
-(% if undefined %}
+(% if 0 %}
 
 #Till Death Do us Part
 Heaven of Pews, Heaven of Twos
