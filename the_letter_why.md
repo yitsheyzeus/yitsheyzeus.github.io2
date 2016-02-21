@@ -132,7 +132,12 @@ Christ mas
 navI   dad
 ```
 The hidden connections between languages, specifically Spanish and English through is something that is highlighted repeatedly in what will become obviously an extension of religion.  *The Taming of the Shrew* is an allusion to Span-glish-rew, a combination of Spanish, English, and Hebrew that marks a linguistic key to a prescient and divine hand in the construction of all of our language.  It is the Tower of Babel in reverse, proving that the fire of Prometheus is actually language, and through a number of examples which equate the meaning of a number of like-meaning words, God shows that their connections were known about at the time of the writing of the Torah.  
+##The Wedding (of the Lamb) Crashers and Marty McFly
 
+###Mar-Thank you from the McFly guy.
+Don't say we never thanked the sea, This is a big Y, the Fly's eye, in my story of constant conversation with God, I spent lots of time expalining to myself--and the invisible onlookers in Heaven why I knew God wasn't human--couldn't be.  You see, God thinks like Fly's see--massively parallel--like a SunSparc chip.  He can see into our thoughts all at once and all across the world; and I've evidence all of the world that he's doing that actively.  He's building a safety for the apocalypse, one that will make sure we are safe and thinking clearly as we learn the secrets of not only religion; but the origins of life and god and everything around us.
+
+World changing stuff, the kind of thing you'd hope he has prepared for.  He has.
 
 #The "**Son of**'s" of God
 
