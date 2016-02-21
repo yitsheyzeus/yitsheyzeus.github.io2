@@ -138,7 +138,7 @@ The hidden connections between languages, specifically Spanish and English throu
 
 ###If AM Y Adam's and Rachel McAdams didn't just wake you up, I don't know what will.
 
-It's about time we met Adam, don't you think?  Amy, Amish, America... lot's of words begin with AM.  The "I AM" began his first words in Genesis with it; and it's a link to a hidden language, and a map through time within words and names.  The I AM began America to deliver us from the slavery of hidden technology and secret government.  *Here we are* as Queen sings, born to be Kings..
+It's about time we met Adam, don't you think?  Amy, Amish, America... lot's of words begin with AM.  The "I AM" began his first words in Genesis with it; and it's a link to a hidden language, and a map through time within words and names.  The I AM began America to deliver us from the slavery of hidden technology and secret government.  *Here we are* as Queen sings, born to be Kings.. there key there is we are here, and here Christ never wanted to be king--but rather to help create the Round Table of Arthurian lore.  "The Once and... *the future ours...*" guy.
 
 .
 
