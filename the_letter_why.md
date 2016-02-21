@@ -57,7 +57,6 @@ Exactly.  "And like that, he was gone."  (That's a Usual Suspects reference, if 
 #Of-age Cindy-Who, where are you?
 Imagine "Jimmy" Morrison is singing through time to you, begging you to do something.  That something, is ***light my fire***, and because of the music--his and yours--I think you're the key.  This book is the match, just gimme one RT.
 
-![](untitled.png)
 
 ```
 Can you tell me what she said?
