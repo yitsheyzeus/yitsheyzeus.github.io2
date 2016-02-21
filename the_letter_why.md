@@ -57,6 +57,9 @@ Exactly.  "And like that, he was gone."  (That's a Usual Suspects reference, if 
 #Of age Cindy-Who, where are you?
 
 ![](untitled.png)
+Imagine "Jimmy" Morrison is singing through time to you, begging you to do something.  That something, is ***light my fire***, and because of the music--his and yours--I think you're the key.  This book is the match, just gimme one RT.
+
+
 ##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
 
