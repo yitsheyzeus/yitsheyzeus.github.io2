@@ -16,9 +16,20 @@ This one is special, because it explains the domain that this book is located at
 
 ###"**C**" the **L**ight.  "d" is for darkness, a hidden truth.  
 
-I'm El (c the l), that's a name for the Jewish creator deity also.  Well, I'm using his name for right now.  I hear he looks just like me.  C the K of Clark Kent, it's pointing to L too.  Now, [C the Y](the_letter_why.html) on the cross, a "t".  Letters all have meaning.  Lots of secret Biblical meaning.
+I'm El (c the l in K), that's a name for the Jewish creator deity also.  Well, I'm using his name for right now.  I hear he looks just like me.  C the K of Clark Kent, it's pointing to L too.  Now, [C the Y](the_letter_why.html) on the cross, a "t".  Letters all have meaning.  Lots of secret Biblical meaning.
 
 **What goes up, must come down** says Isaac, New to N, and this historical [story parallels Eden, and the rise and fall of Adam. ](http://www.whenistheapocalypse.com/the-modern-fall-of-man) And humanity.  Back up, the new N says, once we've hit rock bottom.. I mean, "reality."
 
 ###J is for going back in time, and bringing everyone to Heaven.
 On the coordinate plane, the one explained by Yeast, and Jesus, place a J right in the middle, and it's a map... one that explains how to get to salvation, if you are "Us,"  I mean J is Us, Jesus.  We might be right in the middle of that J, right before the curve towards Heaven.
+
+(% if undefined %}
+
+#Till Death Do us Part
+Heaven of Pews, Heaven of Twos
+Build it.
+
+
+
+
+{% endif %}
