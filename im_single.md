@@ -131,7 +131,19 @@ Then there's the Greek god, **Adonis;** which might highlight that there is a cl
 
 Adonis also reminds us that *"thinking every song is about you, out you, don't you"* might get you killed while you stare into the mirror.  This is a dating site, right?
 
-#ADvent
+##AD on Ai
+
+Adonai is the verbal parallel to Yahweh andJehovah. Adonai is plural; the singular is adon. In reference to God the plural Adonai is used. When the singular adon is used, it usually refers to a human lord. Adon is used 215 times to refer to men. Occasionally in Scripture and predominantly in the Psalms, the singular adon is used to refer to God as well (cf. Exd 34:23). To avoid contravening the commandment “Thou shalt not take the name of the LORD thy God in vain” (Exd 20:7), sometimes Adonai was used as a substitute forYahweh (YHWH). Adonai can be translated literally as, “my lords’ ” (both plural and possessive).
+
+The word adonai comes from the unused root אדן ('dn), of which the meaning is disputed, says BDB Theological Dictionary, and lists the following proposals: Some say it's comparable to the Assyrian word adannu, meaning firm or strong, and the associated adverb adannis means strongly or exceedingly. Others say it may have to do with a Persian word meaning firm or fasten, and thus it means to determine, hence command, hence rule. Others still propose relations to an Arabic verb that means to be obedient or cause obedience, hence govern and rule. This verb is thought to have to do with the Hebrew word דין (din), meaning to judge, and thus with the name דן (Dan), and also makes the best candidate morphologically spoken.
+
+##AD on *"I'm Single"*
+
+Adonis (/əˈdɒnɪs, əˈdoʊnɪs/; Greek: Ἄδωνις), in Greek mythology, is a central figure in various mystery religions. The dying of Adonis was fully developed in the circle of young girls around the poet Sappho from the island of Lesbos, about 600 BC, as revealed in a fragment of Sappho's surviving poetry.
+
+Adonis has had multiple roles, and there has been much scholarship over the centuries concerning his meaning and purpose in Greek religious beliefs. He is an annually-renewed, ever-youthful vegetation god, a life-death-rebirth deity whose nature is tied to the calendar. His name is often applied in modern times to handsome youths, of whom he is the archetype.
+
+##ADvent
 Being hidden from the world has been difficult for me, you can imagine I'd vent nearly every Christmas... waiting to be able to deliver a message that I know the world needs to hear.  More than that, they need it to come from Christ himself, even if they don't really want him to exist.  I'm sure to disappoint those seeking perfection, or even someone that's nice all the time; but not delivering the world changing message is probably a bigger problem for me.  Hopefully you won't hate me as much as the last guy.
 
 #The Fall of the Anti-Christ(s)
