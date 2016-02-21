@@ -169,7 +169,8 @@ Since LODI's name links Cameron Diaz and Snoop Dogg to a movie about the inner w
 
 ![Cameron Diaz, shakin it.](cameron.gif)
 
-*We didn't cause much trouble... or bother many...*
+*We didn't cause much trouble... or bother many...*!
+In computing, "!" is a "bang."
 
 
 #The "**Son of**'s" of God
