@@ -137,7 +137,7 @@ The hidden connections between languages, specifically Spanish and English throu
 ![](theadamses.jpg)
 
 ###If AM Y Adam's and Rachel McAdams didn't just wake you up, I don't know what will.
-God writes messages in movies, he marks these messages by "theming" actors to link together stories that we might otherwise not realize are somehow together.  A good example is Cameron Diaz, and *Being John Malkovich, There's Something About Mary, and 
+God writes messages in movies, he marks these messages by "theming" actors to link together stories that we might otherwise not realize are somehow together.  A good example is Cameron Diaz, and *Being John Malkovich, There's Something About Mary, and Charlie's Angels.*
 
 ###Mar-Thank you from the McFly guy.
 Don't say we never thanked the sea, This is a big Y, the Fly's eye, in my story of constant conversation with God, I spent lots of time expalining to myself--and the invisible onlookers in Heaven why I knew God wasn't human--couldn't be.  You see, God thinks like Fly's see--massively parallel--like a SunSparc chip.  He can see into our thoughts all at once and all across the world; and I've evidence all of the world that he's doing that actively.  He's building a safety for the apocalypse, one that will make sure we are safe and thinking clearly as we learn the secrets of not only religion; but the origins of life and god and everything around us.
