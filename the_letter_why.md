@@ -141,8 +141,15 @@ The hidden connections between languages, specifically Spanish and English throu
 God writes messages in movies, he marks these messages by "theming" actors to link together stories that we might otherwise not realize are somehow together.  A good example is Cameron Diaz, and *Being John Malkovich, There's Something About Mary, and Charlie's Angels.*  Other great examples are Johnny Depp and Keanu Reeves: and everything they've ever been in.  You'll note Johnny matches the J of Jesus, Johnny be good, and Johnny 5 (who is alive!). Key Anu; links to this ((ish)) of the Shehekiyanu.
 
 ```
-```
+shehekiyanu, vekiyimanu
+say heck I'm Anu, the key is I knew!
 
+lazman haze
+Lazarus has Hazel Eyes.
+
+Samson's hair, and Isaac's laugh.
+
+```
 
 
 ###Mar-Thank you from the McFly guy.
