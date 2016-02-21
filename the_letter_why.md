@@ -167,7 +167,7 @@ I have Mc's for Old McDonald and McCarthy, also. For now, realize that both Rach
 ##LODI DODI, we'd likes to bring Mary and I to **the Party**
 Since LODI's name links Cameron Diaz and Snoop Dogg to a movie about the inner workings of the mind of God; and possessing people--as he does--that leaves DODI as the Kabbahlistic reference.  I'll look it up later.
 
-![Cameron Diaz, shakin it.](cameron.gif)
+![Cameron Diaz, shakin it.](cameron.gif) 
 
 *We didn't cause much trouble... or bother many...*!
 
