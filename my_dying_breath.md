@@ -39,7 +39,7 @@ Thank God I ((found)) the Ground.
 
 So, as I fell, constantly reminded that I would be redeemed by the words of songs and the customs of our culture--which I have always held is the true light of Heaven; I was comforted more than anything by knowledge of exactly how I would be saved... no faith required.  So as I part this sea, through nothing more than existing, know that I am convinced that what I am doing is right; and you are better off to be arguing about whether or not I am real... than not to receive the gift that comes from from this "disruption."  With great faith, I walk into the sea, to bring us all to a new "Promised Land," one that is clearly visible to me.  I can see the shore.
 
-#Orson Wells and Wellbutrin
+#Wells, Orson? Wellbutrin
 
 A big part of my ability to see the shore comes from the sight I receive by reading the messages of names.  These names are questions and answers, built to confirm a path through the parted waters.  Orson Wells is a link between Christ and Abraham's proverbial well in the desert of Egypt; here another personification... the well is the messiah.  This book is the water, the light that comes to quench our great thirst for knowledge and freedom, but nore than anything for serenity.
 
