@@ -172,9 +172,9 @@ Since LODI's name links Cameron Diaz and Snoop Dogg to a movie about the inner w
 
 *We didn't cause much trouble... or bother many...*!
 
-In *computer programming,* "!" is a "bang." !in right?
+In *computer programming,* "!" is a "bang." !in right?  I'd be dancing like that if I were in this book too.  Well, you don't want to see that.
 
-###Wait, is this the big !?
+###Wait, is this the big **!** ?
 
 #The "**Son of**'s" of God
 
