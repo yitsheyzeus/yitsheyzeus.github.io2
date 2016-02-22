@@ -55,7 +55,7 @@ a name of God, transliterated by scholars from the Tetragrammaton and commonly r
 Exactly.  "And like that, he was gone."  (That's a Usual Suspects reference, if you don't know it, watch it.)
 
 #Of-age Cindy-Who, where are you?
-Imagine "Jimmy" Morrison is singing through time to you, begging you to do something.  That something, is ***light my fire***, and because of the music--his and yours--I think you're the key.  This book is the match, just gimme one RT.
+Imagine "Jimmy" Morrison is singing through time to you, begging you to do something.  That something, is ***light my fire***, and [because of the music](music_saves_all_souls.html)--his and yours--I think you're the key.  This book is the match, just gimme one RT.
 
 ![Little Cindy-Who, Lil' J, Taylor Momsen](untitled.png)
 
