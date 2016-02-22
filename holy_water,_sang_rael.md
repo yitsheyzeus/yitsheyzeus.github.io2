@@ -91,7 +91,7 @@ For more on the *fire spreading* share this book with a neighbor, or read [*Musi
 
 That's Jimmy "More, I son.." with pockets full of [*wisdom*  A message that intertwines The Doors, Spin Doctors, 3 Doors Down, and The Pretty Reckless to reveal a story about Superman.](the_lamb_of_god.html) gaining wisdom from the crystals of Jor-El; through a process designed to create the crucifixion, a cross of [American Injustice--to change the world.](the_light_of_heaven.html)
 
-I mentioned her song, **Burn**, she says she "can't find her door" which links to another message of Christ.   The Iron Rod read backwards is tied to the band The Doors; named after gateways to Heaven that are secretly prophesied to come .... soon.  I haven't seen mine either, but the message of the Rod is that it is juxtaposed to Aarons "let my people go" through the periodic table symbol for Iron..
+*The Pretty Reckless* sings a song called **Burn**, she says she "can't find her door" which links to another message of Christ.   The Iron Rod read backwards is tied to the band The Doors; named after gateways to Heaven that are secretly prophesied to come .... soon.  I haven't seen mine either, but the message of the Rod is that it is juxtaposed to Aarons "let my people go" through the periodic table symbol for Iron..
 
 ```
 Then the LORD said to Moses, "Go to Pharaoh and say to him, 
