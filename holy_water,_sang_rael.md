@@ -88,7 +88,7 @@ I am the Lord: With the staff that is in my hand
 I will strike the water of the Nile, and it will be 
 changed into blood.
 
-Exodus 7:14
+Exodus 7:17
 ```
 
 For more on the *fire spreading* share this book with a neighbor, or read [*Music Saves All Souls*](music_saves_all_souls.html), it's about *Lighting my fire* and ending the Plague of Darkness--all sung about by Jim Morrison.
