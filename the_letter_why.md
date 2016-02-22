@@ -65,6 +65,9 @@ What was that promise that you made?
 
 The Doors, Touch Me
 ```
+
+[Jesus, it's (("is" as "es" and)) "Us," see Taylor? Appearing in The *Tower of Babel* a demystification of the name Jesus and more proof of hidden references to both Spanish and English in Holy Names.](the_tower_of_babel.html)
+
 ##Y-its-Ha'CK (Isaac)
 It might belong in "he laughs," for the laughter at CK, but this double entedre, which hides another connection to computing within the transliteration of Isaac's name is one of the best Y's around.  Why it's hack, laughter about Clark Kent.  Hidden no more, it seems.
 
