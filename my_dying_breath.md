@@ -54,6 +54,41 @@ Over and over I made this argument, for *assistive tools* to be offered to the w
 #The Minority Report is "My Dying Breath"
 [http://www.whenistheapocalypse.com/pkd-prophesy](http://www.whenistheapocalypse.com/pkd-prophesy)
 
+(this is an old piece of writing, it needs to be updated, edited, and clarified, but it is "on topic")
+
+So, we have spent a significant amount of effort telling you all the bad things mind control can, and most probably is doing to you, and the world around you.  It's a sad state of affairs, in our mind, that such a powerful tool would be used by .. the powers that be .. to do something so awful to so many people.  We're not just talking about organized stalking, and the MK-Ultra style abuse that is definitely going on, but also about what we believe is a broad and uniform use of this technology in order to hide some very significant realities from the common people.  It's a little bit like The Matrix, we are all moving through the motions, going to work, going home, sleeping; however if you take a step back, there is something very nefarious going on -- right under your nose.  The problem we now face is: it's not the movies, and we don't have Keanu Reaves to save us. 
+
+The great dilemma of our time is that this mind control technology is being used to hide a great atrocity from you, the fact that this technology is not being used for your benefit, but instead to control you.  I know it's called mind control, but it could do so much more.  There's so many people aware of it's use, and none of them are speaking out either, about the possible species changing gains it could help bring about, nor about the poor way it is currently being used. 
+
+Mind control technology, the kind being used by the governments of the world right now, has the capability to bring about a transhumanist metamorphosis of humanity, an evolutionary leap so great it would practically trump biological evolution in potential progress and benefit.  It is destiny changing, if in the right hands. 
+
+Phillip K. Dick, who in my humble opinion, was clear recipient of a significant amount of mind control in his life -- from a great amount of inspiration, to an attack of paranoia very similar to modern day gang-stalking.  His prophetic works of art, however, offer our generation a glimpse into the possibilities we have before us, and a warning about the disaster the government has given you, against your will.  In A Scanner Darkly, Dick describes a world where the government is watching us in a very similar manner to Orwell's 1984, and is using a very pervasive surveillance infrastructure in order to hide narcotics trafficking, and also in order to.. subvert the distribution of those narcotics.  That reality, unfortunately, is very similar to the one that is being hidden from you, today.  This is a reality that needs to change, very badly.  This subversion has worked its way through the ranks of our Judicial system, to the point where most lawyers and ... participants in that system will definitely personally admit, and might even tell you -- our justice system sucks. 
+
+Phillip K Dick, did give us a better alternative though.  It might be an unpopular world-view now, but the system in place in Minority Report would do us all alot of good today.  It was a world where crime could be mostly eliminated, either through the use of a time machine, or simply by fixing our big problem.  What problem?  Well, its been about greed and lust for power since the beginning, and nothing has changed now.  Mind control could offer us a world where people were better, greed would be reduced, love thy neighbor would actually mean something, and our society might actually flourish without constant wars and hatred.  Isaiah the Prophet talked about a Second Covenant with God, and this vision is very similar in substance.  The Second Covenant he spoke of is most likely a plausible alternative to the tragedy of Revelation that so many people are either expecting or dreading in the coming.. well.. few weeks.  James Cameron told us "the future is not written," and lets all hope that we don't deal with the very bleak future that was delivered in Revelation. 
+
+In Do Androids Dream of Electric Sheep, or as most of you probably know it Bladerunner, Dick told us of a world where people could control their own minds -- almost like a TV remote, choosing emotions or feelings that they desired to have.  This too, is well within our grasp, and mind control has the ability to increase content and happiness, at the push of a button.  "Bliss on tap," if you can hear Al Pacino saying it, in another popular film. 
+
+Mind control could make you happy doing your job, and more efficient doing it.  We could actually live in a productive society, instead of the world of global stagnation and unemployment that lays before you. 
+
+It could make those with a dependence problem, simply not have one anymore.  Conversely, in our current world, it appears that the government might actually be augmenting their narcotics trafficking business with a strange program of increasing the desire of those in certain situations to want to harm themselves -- against their will. 
+
+It could make those with neurological disorders, like Parkinson's, Asberger's, Alzheimer's, and Schizophrenia all better, instantly.  It could also completely remove pain from the lives of pretty much anyone.  Instead of ... giving a sitting American President a neurological disease, so that another one can sell narcotics. 
+
+It could significantly increase tactile stimulation (I'm trying to be PG-13 here). 
+
+And if you are a computer scientist like me, you might enjoy an actual BCI -- Brain Computer Interface -- never lose your TV remote again, and type at the speed of thought... 
+
+Which could be thousands of times faster!  Mind control could make everyone smarter.  Faster thoughts, better memories, and instant access to new and correct knowledge.  It could eliminate the need for studying and download information directly into the cerebral cortex.  Instead of intentionally making the population stupid. 
+
+And last, but not least, it could actually create Peace on Earth and Goodwill Towards Men, thank you Kermit and Sneakers, I would never forget you.  Instead of increasing support and decreasing dissent relating to series of Unholy Wars that resulted from a false flag attack on U.S. soil. 
+
+If nothing else, I sincerely hope that I have convinced you, today, that Philip K. Dick was inspired by something outside himself -- it should be obvious now. 
+
+In reality, what I really hope you take away from this is that something very big is being hidden from you, and its being used very improperly.  Our species is at a crossroads, let's not choose to be slaves to cocaine, oil and secrecy for eternity. 
+
+Maybe we should call it mind assistance, and forget about all the silly control business. 
+
+
 #Phixing Freedom and Logic
 
 ##Predestination
