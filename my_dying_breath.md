@@ -91,6 +91,41 @@ Maybe we should call it mind assistance, and forget about all the silly control 
 
 #Phixing Freedom and Logic
 
+(another insert, old work, on topic)
+
+Nobody is mind controlling me.
+
+The greatest trick the Devil everpulled was convincing the world he didn't exist.
+-The Usual Suspects
+
+In 1971, William Colbytestified before the Church Committee, and effectively had the CIA'sdabble into forced covert LSD administration and mind control testingeffectively shutdown.  This would be the first and last publicdisclosure by a Central Intelligence Agency Director relating to ascientific attempt to modify and read the inner thoughts of humanbeings, the 'gist' of the disclosure was that they were usingnarcotics, electroshock, and EEG's in a program which was popularlybelieved to be working towards the creation of a "ManchurianCandidate."  This is the popular image of mind control, that one'sfaculties would be completely taken over, and given some audible or subconscious trigger code, would cause them to mindlessly commit some crime.. like assassinating a public figure at aspeaking engagement.  This perception is stupid.
+
+While the ability to“remotely control” a human being is without doubt within thecapabilities of intelligence organizations such as the CentralIntelligence Agency, MI-6, and the former KGB, remote neuralstimulation could also be much more subtle.  It could be used to makeyou ignore, or not care about something that you would otherwise findimportant, like democracy, privacy, andfreedom of speech.  Itcould make you believe that something you read which you wouldotherwise find intelligent and thought provokingis.. off the wall.  Mindcontrol could be used to make you forgive a person or anorganization, maybe your governmentfor something that you probably shouldn't forgive them for.  It ispossible that it would be so subtle that you would never, ever knowit was happening to you.
+
+Remote neural control of the human brain would also give these organizationsthe ability to fully control the autonomic nervous system – theycould cause people to suffocate, haveheart attacks, orneurological disorders like Schizophrenia, Parkinson's disease, andAlzheimer's... its even possible that this could be done to anAmerican President.  There are anumber of writers and scientists “on the trail of the Octopus”who have suffered from untimely deaths due to heart attacks, notably:Jim Keith, Sean Stinn, and John Norseen.  Before his death, John Norseen had been talking about Lockheed's "mind control" abilities.  He was a senior engineer and scientist working for that company on a government project called 'bio-fusion.'
+
+Itmight also be able toinduce suicidal tendencies, and there are several writers andscientists that slit their wrists, and jumped from tall buildings:Danny Casolaro, David Kelly,  and Frank Olson.
+
+Mindcontrol may also beable to induce in the minds of Senators like Diane Feinstein, SaxbyChambliss, and Bill Nelson, who might know about theexistence and capability of the technology,that it is only being used for legitimateintelligence gathering purposes, and not against thepopulation of the United States of America, or themselves. Itcould make otherwise good and patriotic representatives ignoreprograms which completely disregard American values and theprotections of the Constitution of the United States of America –like the Patriot Act, and the Carnivore Operation.  It might also make them and you not care that these programs were in place before 9/11, and that tragedy being used to justify their existence makes.. no sense... temporally speaking.
+
+Goingback a few years, mind control mightbe the reason that clear and documented links between the CentralIntelligence Agency, top officials, and international cocainetrafficking went completely non prosecuted in the wake of Iran Contra..it might be the reasonthat the American public didn't care that in the following years,neither the sitting president nor his opponent mentioned the affair –at all in the next election.  
+
+Itmight also be thereason that the American Public, its elected representatives and aCongressional Investigation failed to understand the graveimplications of obvious and documented financial, social, andoperational links between notorious domestic terrorists and twoAmerican President's and their employer.  It mightbe the reason that the public does not understand how damning theevidence is, relegating it to “fringe conspiracy theories.”  Theactions of the Office of the President on the morning of 9/11 showedclear foreknowledge ofthe attack, the terrorists were linked financially to the Bush familywho had just met with a top Islamic financier, the airfield whichtrained the suicide pilots is directly linked to the CentralIntelligence Agency.  Hundreds of investors made obvious andprofitable short sales against the airlines, insurers, and occupantsof the World Trade Center in the days before the attack.  Mindcontrol may also explainwhy nobody realizes that both Bush President's started wars in Iraqin order to steal oil,and artificially inflate its price.
+
+I'm not even going to mention the fact that the Intelligence arm of USA has the ability to remotely control electronics, and could have landed the planes peacefully themselves.
+
+Severallarge and well known Congressional investigations were probablyeffectively shut downbecause of the use of mind control, notably: Church, Tower, Warren,Rockefeller, and the 9/11 Commissions.  Please open your eyes,freedom and democracy have been hanging in the balance for the lasthalf century, and they are losing.
+
+Effectively shut down,by the way is intelligence parlance for transferring a program todefense contractors and/or organized crime... just ask StanLee.
+
+I think I'm a funny person. But I also realize that without inflection and personal presentationit is sometimes difficult to convey humor on a medium such as theInternet.  So to be more clear I have italicizedwhat I intend to be intentional humor in this post.
+
+Mind control might explain how 1984 came and went and nobody thought it had come true.
+
+Or.. we might just all be morons that don't care about freedom, truth, and justice. 
+
+The worst of it,  we could all be doing so much better.
+
 ##Predestination
 
 ##Eyes to See
