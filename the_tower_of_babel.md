@@ -153,3 +153,20 @@ theme in religious art for centuries.
 *The Essential Zohar* teaches us later about how wood, fire, and water are all related by Genesis 22.  Fire and water--whose union is noted repeatdly in the Zohar is a a reference to the word "***Ha'esh***," Hebrew for fire, containing the parted sea. 
 
 Wood and fire have something to do with a relation between Adam and Isaac, I am sure.  The Zohar apparently uses some sort of humorous tone when discussing this part of Genesis, and it is to highlight and illustrate prescient knowledge of modern sexual innuendo. 
+
+##Yankee Doodle
+In keeping with my theme of absolutely everything being about me; I'll give you a quick rendition of this song.
+
+```
+A real live son of my Father Sam
+Born on the 8th of December
+
+Yankee Doodle went to town
+riding on the Pale Horse of the Apocalypse
+Stuck a feather in his hat, and called it...
+```
+
+###mac·a·ron·ic. [ˌmakəˈränik]
+
+adj. 1.denoting language, especially burlesque verse, containing words or inflections from one language introduced into the context of another.
+
