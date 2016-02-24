@@ -172,5 +172,12 @@ adj. 1.denoting language, especially burlesque verse, containing words or inflec
 
 See?
 
-![](10497520_479032668900646_3350102167818384620_o.jpg)
 
+
+![Osiris and his Tree](10497520_479032668900646_3350102167818384620_o.jpg)
+
+##Death and resurrection of Osiris
+
+The cohesive account by Plutarch, which deals mainly with this portion of the myth, differs in many respects from the known Egyptian sources. Set—whom Plutarch, using Greek names for many of the Egyptian deities, refers to as "Typhon"—conspires against Osiris seventy-two unspecified accomplices, as well as a queen from Ethiopia (Nubia). Set has an elaborate chest made to fit Osiris's exact measurements and then, at a banquet, declares that he will give the chest as a gift to whoever fits inside it. The guests, in turn, lie inside the coffin, but none fit inside except Osiris. When he lies down in the chest, Set and his accomplices slam the cover shut, seal it, and throw it into the Nile. With Osiris's corpse inside, the chest floats out into the sea, arriving at the city of Byblos, where a tree grows around it. The king of Byblos has the tree cut down and made into a pillar for his palace, still with the chest inside. Isis must remove the chest from within the tree in order to retrieve her husband's body. Having taken the chest, she leaves the tree in Byblos, where it becomes an object of worship for the locals. This episode, which is not known from Egyptian sources, gives an etiological explanation for a cult of Isis and Osiris that existed in Byblos in Plutarch's time and possibly as early as the New Kingdom.   [The tree of Osiris is discussed at the encl of the book.](the_encl.html)
+
+Plutarch also states that Set steals and dismembers the corpse only after Isis has retrieved it. Isis then finds and buries each piece of her husband's body, with the exception of the penis, which she has to reconstruct with magic, because the original was eaten by fish in the river. According to Plutarch, this is the reason the Egyptians had a taboo against eating fish. In Egyptian accounts, however, the penis of Osiris is found intact, and the only close parallel with this part of Plutarch's story is in "The Tale of Two Brothers", a folk tale from the New Kingdom with similarities to the Osiris myth.
