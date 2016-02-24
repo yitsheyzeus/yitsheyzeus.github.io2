@@ -172,3 +172,5 @@ adj. 1.denoting language, especially burlesque verse, containing words or inflec
 
 See?
 
+![](10497520_479032668900646_3350102167818384620_o.jpg)
+
