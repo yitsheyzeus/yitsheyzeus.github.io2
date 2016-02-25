@@ -55,7 +55,9 @@ a name of God, transliterated by scholars from the Tetragrammaton and commonly r
 Exactly.  "And like that, he was gone."  (That's a Usual Suspects reference, if you don't know it, watch it.)
 
 ##Yahoo!
-If you knew that you were somehow closely associated with a time traveler, and the technology might just fall within your grasp... and you could re-live all or part of your life; what's the first thing you'd think to do with it?  I hope I've answered your questions.  
+If you knew that you were somehow closely associated with a time traveler, and the technology might just fall within your grasp... and you could re-live all or part of your life; what's the first thing you'd think to do with it?  
+
+I always knew I'd be OK around 2000, but what about before that?  I hope I've answered your questions.  
 
 Ya hoo is that guy again?
 
