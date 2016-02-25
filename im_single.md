@@ -152,7 +152,7 @@ Adonis (/əˈdɒnɪs, əˈdoʊnɪs/; Greek: Ἄδωνις), in Greek mythology, 
 
 Adonis has had multiple roles, and there has been much scholarship over the centuries concerning his meaning and purpose in Greek religious beliefs. He is an annually-renewed, ever-youthful vegetation god, a life-death-rebirth deity whose nature is tied to the calendar. His name is often applied in modern times to handsome youths, of whom he is the archetype.
 
-#AN
+#AN{#AN}
 
 Anu (also An; from Sumerian 𒀭 An, "sky, heaven") is the earliest attested Sky Father deity. In Sumerian religion, he was also "King of the Gods", "Lord of the Constellations, Spirits and Demons", and "Supreme Ruler of the Kingdom of Heaven", where Anu himself wandered the highest Heavenly Regions. He was believed to have the power to judge those who had committed crimes, and to have created the stars as soldiers to destroy the wicked. 
 
