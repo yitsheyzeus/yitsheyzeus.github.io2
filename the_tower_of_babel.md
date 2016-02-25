@@ -154,7 +154,7 @@ theme in religious art for centuries.
 
 Wood and fire have something to do with a relation between Adam and Isaac, I am sure.  The Zohar apparently uses some sort of humorous tone when discussing this part of Genesis, and it is to highlight and illustrate prescient knowledge of modern sexual innuendo. 
 
-#Is J or the USA the Messiah>
+#Is J or the USA the Messiah?
 Jerusalem, for long. 
 
 ##Yankee Doodle
