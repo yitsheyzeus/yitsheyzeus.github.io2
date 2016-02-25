@@ -138,6 +138,18 @@ In what is a "joke" that correlates the word "messiah" to an immaculate cleanlin
 DOB-R-IN (that's: Date of Birth, our 'In') my last name is not arbitrarily containing the acronym for date of birth, which clearly links 12/8/1980 to the word "messiah."  It is the first of many names that will show a divine hand that has pre-written our world and marked its influence and existence.  My mother's maiden name, Gerson, fills another gap; showing that in my names we have the hidden "sky" and the hidden "son."  Dobrin is shortened from Dobrinsky, and these two words are references to Uranus, God of the Sky, and Christ.
 
 ![](charissag.png)
+```
+The juxtaposition of the sign of Saggitarius for the "t" of Christ
+and the "l" of Holy gives a great deal of substance to the implication
+that the birthsign of El is actually that.  The symbol graces the 
+"birth-sign of the Son" in Mars also, where it unifies the two "o's" 
+of "hooty" through the ancient Hebrew monkier for God:  The Lord 
+of Hosts.  Here, the superposition of meaning between Armies and 
+"hosts" explains a hidden gem--that God thinks mind control is 
+Love and this unifies Venus and Mars... without the Circle of the Son.
+
+The symbol for Earth.
+```
 
 Just off Sunrise Blvd, and down the street from Sunset Strip; the story of my life quickly moved from perfect to a mess.  These streets, named before I was born, are only literal blocks away from where I spent most of my life.  Their names are references to the Biblical ideas of night and day, and herald the "son rise," the dawning that ends the Dark Plague of Egypt and brings our civilization out of the night and into the light... of the Son.  
 
