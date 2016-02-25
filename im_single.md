@@ -154,11 +154,13 @@ Adonis has had multiple roles, and there has been much scholarship over the cent
 
 #AN
 ```
-ANNO DOMINI
+ANno domini
 DO
 AW
 M
 ```
+If Eden is the Den of Lions, Earth prefixing it; and Egypt is the planet "gipped" by no son light then Edom clearly ranks high in the revelation of understanding this hidden code: *it is the Kingdom with a hidden or no king.*
+
 Vi@c[aN]
 
 ##anokhi
