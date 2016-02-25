@@ -129,7 +129,7 @@ In things like Heaven and in Jesus
 Joan Osbourne
 ```
 
-![The word is HOOTY](hootyisthekey.png)
+![The word is HOOTY](hootyiskthekey.png)
 
 In what is a "joke" that correlates the word "messiah" to an immaculate cleanliness that can only come from the clean slate of new birth; this song joins the growing body of proof that links my life's experience to the angelic song that is surrounding us.  The theme of Joan of Arcadia, that God speaks through people is made even clearer by actually believing it.  It is no mistake that I am "a slob," and the mess of my life is part of the solution to our worlds problems.  Through me, we will be saved.
 
