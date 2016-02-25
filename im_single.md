@@ -165,6 +165,9 @@ Vi@c[aN]
 ```
 
 ```
+Anokhi is a very powerful Hebrew word translated I AM. The basic word translated I AM is Ani. Adding khi makes the word a very definite, deliberate action. It means Because I AM. Anokhi is in the Hebrew scriptures over one hundred times. Ani is used several hunderds of times. When God says I AM, He does so with great and intense purpose. 
+
+Anokhi is referred to three times in the NT. Matt 22:32, Mk. 12:26, Acts 7:32. These verses all refer to the same verse in the Hebrew Scriptures, Exodus 3:6: And He said, I AM the God of your father, the God of Abraham, the God of Isaac and the God of Jacob, And Moses hid his face, for he was afraid to look upon God.
 
 
 ##ADvent
