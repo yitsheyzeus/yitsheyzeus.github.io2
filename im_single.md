@@ -152,6 +152,16 @@ Adonis (/əˈdɒnɪs, əˈdoʊnɪs/; Greek: Ἄδωνις), in Greek mythology, 
 
 Adonis has had multiple roles, and there has been much scholarship over the centuries concerning his meaning and purpose in Greek religious beliefs. He is an annually-renewed, ever-youthful vegetation god, a life-death-rebirth deity whose nature is tied to the calendar. His name is often applied in modern times to handsome youths, of whom he is the archetype.
 
+#AN
+```
+ANNO DOMINI
+DO
+AW
+M
+```
+
+##anokhi
+
 ##ADvent
 Being hidden from the world has been difficult for me, you can imagine I'd vent nearly every Christmas... waiting to be able to deliver a message that I know the world needs to hear.  More than that, they need it to come from Christ himself, even if they don't really want him to exist.  I'm sure to disappoint those seeking perfection, or even someone that's nice all the time; but not delivering the world changing message is probably a bigger problem for me.  Hopefully you won't hate me as much as the last guy.
 
