@@ -159,7 +159,7 @@ DO
 AW
 M
 ```
-If Eden is the Den of Lions, Earth prefixing it; and Egypt is the planet "gipped" by no son light then Edom clearly ranks high in the revelation of understanding this hidden code: *it is the Kingdom with a hidden or no king.*  Like the time-line clearly states--in langolier--God has declared there will be "no dom" in Him.  He does so in Obadiah1 , Jeremiah 49, and it was very clear in my life's story.
+If Eden is the Den of Lions, Earth prefixing it; and Egypt is the planet "gipped" by no son light--then Edom clearly ranks high in the revelation of understanding this hidden code: *it is the Kingdom with a hidden or no king.*  Like the time-line clearly states--in langolier--God has declared there will be "no dom" in Him.  He does so in Obadiah1 , Jeremiah 49, and it was very clear in my life's story.
 
 Vi@c[aN]
 
