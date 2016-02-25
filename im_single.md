@@ -167,8 +167,8 @@ Vi@c[aN]
 yitz'chäq wëlohëy yaáqov 
 
 
-I x595 [am] the ´Élöhîm אֱלֹהִים 430 of thy father, 1 th
-e ´Élöhîm אֱלֹהִים 430 of ´Avrähäm אַברָהָם, 85 the ´Élöhîm אֱלֹה
+I x595 [am] the ´Élöhîm אֱלֹהִים 430 of thy father, 1 the
+´Élöhîm אֱלֹהִים 430 of ´Avrähäm אַברָהָם, 85 the ´Élöhîm אֱלֹה
 ִים 430 of Yixçäk יִצחָק, 3327 and the ´Élöhîm אֱלֹהִים 43
 0 of Ya`áköv
 
