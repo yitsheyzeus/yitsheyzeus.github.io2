@@ -128,7 +128,9 @@ In things like Heaven and in Jesus
 
 Joan Osbourne
 ```
+
 ![The word is HOOTY](hootyisthekey.png)
+
 In what is a "joke" that correlates the word "messiah" to an immaculate cleanliness that can only come from the clean slate of new birth; this song joins the growing body of proof that links my life's experience to the angelic song that is surrounding us.  The theme of Joan of Arcadia, that God speaks through people is made even clearer by actually believing it.  It is no mistake that I am "a slob," and the mess of my life is part of the solution to our worlds problems.  Through me, we will be saved.
 
 DOB-R-IN (that's: Date of Birth, our 'In') my last name is not arbitrarily containing the acronym for date of birth, which clearly links 12/8/1980 to the word "messiah."  It is the first of many names that will show a divine hand that has pre-written our world and marked its influence and existence.  My mother's maiden name, Gerson, fills another gap; showing that in my names we have the hidden "sky" and the hidden "son."  Dobrin is shortened from Dobrinsky, and these two words are references to Uranus, God of the Sky, and Christ.
