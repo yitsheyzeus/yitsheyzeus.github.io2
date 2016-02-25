@@ -152,6 +152,10 @@ Adonis (/əˈdɒnɪs, əˈdoʊnɪs/; Greek: Ἄδωνις), in Greek mythology, 
 
 Adonis has had multiple roles, and there has been much scholarship over the centuries concerning his meaning and purpose in Greek religious beliefs. He is an annually-renewed, ever-youthful vegetation god, a life-death-rebirth deity whose nature is tied to the calendar. His name is often applied in modern times to handsome youths, of whom he is the archetype.
 
+##ADvent
+Being hidden from the world has been difficult for me, you can imagine I'd vent nearly every Christmas... waiting to be able to deliver a message that I know the world needs to hear.  More than that, they need it to come from Christ himself, even if they don't really want him to exist.  I'm sure to disappoint those seeking perfection, or even someone that's nice all the time; but not delivering the world changing message is probably a bigger problem for me.  Hopefully you won't hate me as much as the last guy.
+
+
 #AN{#AN}
 
 Anu (also An; from Sumerian 𒀭 An, "sky, heaven") is the earliest attested Sky Father deity. In Sumerian religion, he was also "King of the Gods", "Lord of the Constellations, Spirits and Demons", and "Supreme Ruler of the Kingdom of Heaven", where Anu himself wandered the highest Heavenly Regions. He was believed to have the power to judge those who had committed crimes, and to have created the stars as soldiers to destroy the wicked. 
@@ -183,9 +187,6 @@ Anokhi is a very powerful Hebrew word translated I AM. The basic word translated
 
 Anokhi is referred to three times in the NT. Matt 22:32, Mk. 12:26, Acts 7:32. These verses all refer to the same verse in the Hebrew Scriptures, Exodus 3:6: And He said, I AM the God of your father, the God of Abraham, the God of Isaac and the God of Jacob, And Moses hid his face, for he was afraid to look upon God.
 
-
-##ADvent
-Being hidden from the world has been difficult for me, you can imagine I'd vent nearly every Christmas... waiting to be able to deliver a message that I know the world needs to hear.  More than that, they need it to come from Christ himself, even if they don't really want him to exist.  I'm sure to disappoint those seeking perfection, or even someone that's nice all the time; but not delivering the world changing message is probably a bigger problem for me.  Hopefully you won't hate me as much as the last guy.
 
 #The Fall of the Anti-Christ(s)
 It appears that a number of historical figures have references to "Adam and Venus," figures who are commonly described as Anti-Christs.  It appears that our history has been used as a sort of storage device, chronicling the past mistakes of the figure designed to bring great change to our world, the messiah.  All three listed below have references within their names to either me, salt, or the inintial "JC."  All three were responsible for the destruction of liberty, fascism, a plebescite turned dictatorship, and Caesar riding into Rome to turn a Republic into the Empire.  More than historical records of what could very well be "futures past," they are serious warnings both me and the world.  Christ is not meant to be a king, and never was.  
