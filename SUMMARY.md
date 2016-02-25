@@ -9,7 +9,7 @@
 * [The Letter Why](the_letter_why.md)
 * [2 4 6 8 Adam-Who](2_4_6_8_adam-who.md)
 * [The Lamb of God](the_lamb_of_god.md)
-* [Bread for the Poor](bread_for_the_poor.md)
+* [The Second Breakfast](bread_for_the_poor.md)
 * [I'm Single](im_single.md)
 * [The Light of Heaven](the_light_of_heaven.md)
 * [My Dying Breath](my_dying_breath.md)
