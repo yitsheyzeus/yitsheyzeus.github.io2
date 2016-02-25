@@ -159,7 +159,7 @@ DO
 AW
 M
 ```
-Vatic[aN]
+V@ic[aN]
 
 ##anokhi
 ```
