@@ -139,6 +139,14 @@ DOB-R-IN (that's: Date of Birth, our 'In') my last name is not arbitrarily conta
 
 ![](charissag.png)
 ```
+In programming languages, chr() and CHAR (like Eucharist) are func-
+tions that equate symbols to their underlying code.  Generally letters
+to numbers but in this case it makes a great deal of sense to show
+religious foreknowledge of programming languages in the Christian
+themes regarding these two words by equating the astrological 
+symbols to letters.  The "t" is also a great facsimile for the
+cross.
+
 The juxtaposition of the sign of Saggitarius for the "t" of Christ
 and the "l" of Holy gives a great deal of substance to the implication
 that the birthsign of El is actually that.  The symbol graces the 
