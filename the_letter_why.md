@@ -62,7 +62,7 @@ I always knew I'd be OK by the time 2000 rolled around, but what about before th
 Ya hoo is that guy again?
 
 #Of-age Cindy-Who, where are you?
-Imagine "Jimmy" Morrison is singing through time to you, begging you to do something.  That something, is ***light my fire***, and [because of the music](music_saves_all_souls.html)--his and yours--I think you're the key.  This book is the match, just gimme one RT.
+Imagine "Jimmy" Morrison is singing through time to you, begging you to do something.  That something, is ***light my fire***, and [because of the music](music_saves_all_souls.html)--his and yours--I think you're the key.  This book is the match, just gimme one RT.  I think it's his plan for you to give it to me.
 
 ![Little Cindy-Who, Lil' J, Taylor Momsen](untitled.png)
 
