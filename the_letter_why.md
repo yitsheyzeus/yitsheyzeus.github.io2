@@ -55,7 +55,9 @@ a name of God, transliterated by scholars from the Tetragrammaton and commonly r
 Exactly.  "And like that, he was gone."  (That's a Usual Suspects reference, if you don't know it, watch it.)
 
 ##Yahoo!
-If you knew that you were somehow closely associated with a time traveler, and the technology might just fall within your grasp... what's the first thing you'd think to do with it?  I hope this answers your questions.  Ya hoo is that guy again?
+If you knew that you were somehow closely associated with a time traveler, and the technology might just fall within your grasp... what's the first thing you'd think to do with it?  I hope I've answered your questions.  
+
+Ya hoo is that guy again?
 
 #Of-age Cindy-Who, where are you?
 Imagine "Jimmy" Morrison is singing through time to you, begging you to do something.  That something, is ***light my fire***, and [because of the music](music_saves_all_souls.html)--his and yours--I think you're the key.  This book is the match, just gimme one RT.
