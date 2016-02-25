@@ -133,6 +133,8 @@ In what is a "joke" that correlates the word "messiah" to an immaculate cleanlin
 
 DOB-R-IN (that's: Date of Birth, our 'In') my last name is not arbitrarily containing the acronym for date of birth, which clearly links 12/8/1980 to the word "messiah."  It is the first of many names that will show a divine hand that has pre-written our world and marked its influence and existence.  My mother's maiden name, Gerson, fills another gap; showing that in my names we have the hidden "sky" and the hidden "son."  Dobrin is shortened from Dobrinsky, and these two words are references to Uranus, God of the Sky, and Christ.
 
+![](charissag.png)
+
 Just off Sunrise Blvd, and down the street from Sunset Strip; the story of my life quickly moved from perfect to a mess.  These streets, named before I was born, are only literal blocks away from where I spent most of my life.  Their names are references to the Biblical ideas of night and day, and herald the "son rise," the dawning that ends the Dark Plague of Egypt and brings our civilization out of the night and into the light... of the Son.  
 
 I was born in family whose given names are direct pointers to Eden.  Adam, Melissa Eve, and Seth make up a part of the true "First Family," a trinity whose initials make up the word "sea," an early clue that our story will be likening these microcosmic abstractions in Eden to the ideas of family and the multitude once we make it through the book all the way to Revelation.  The sea is people, and when we get all the way to Christmas the multitude family.
