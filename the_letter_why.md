@@ -57,7 +57,7 @@ Exactly.  "And like that, he was gone."  (That's a Usual Suspects reference, if 
 ##Yahoo!
 If you knew that you were somehow closely associated with a time traveler, and the technology might just fall within your grasp... and you could re-live all or part of your life; what's the first thing you'd think to do with it?  
 
-I always knew I'd be OK around 2000, but what about before that?  I hope I've answered your questions.  
+I always knew I'd be OK by the time 2000 rolled around, but what about before that?  I hope I've answered your questions.  
 
 Ya hoo is that guy again?
 
