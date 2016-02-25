@@ -157,7 +157,7 @@ Wood and fire have something to do with a relation between Adam and Isaac, I am 
 #Is J or the USA the Messiah?
 Jerusalem, for long. 
 
-##Yankee Doodle
+#Yankee Doodle
 In keeping with my theme of absolutely everything being about me; I'll give you a quick rendition of this song.  A number of other American patriotic songs also seem to twist very nicely into Ra's Son worshipping theme.  To be noted, "now in broad stripes, our bright son... through the perilous night."  John Hancock and Richard Nixon also relate well with Yankee Doodle, especially when you correlate Genesis 22 with *Wood*-ward, *B**u**rn*-stein (an early link to Emmanuel Goldstein, Wells, and 1984), and my story of love.  History is written by the victor?  If it weren't such good proof that our history is trying to tell us about someone, I would have guarded against this darkness.
 
 ```
