@@ -72,6 +72,8 @@ This transliteration is nontraditional, but it is an accurate representation of 
 
 To be very explicit, this is more than damning evidence to me that Adam and Eve in Eden are one in the same with Jesus and Mary in Rome... and Adam and Nanna... in Florida.  Her name is also shared with a Sumerian creation diety, and an unrelated (and fictional) book called "The Book of Eve" lists the Gods over Eden as "Anu and Nanna" and the two in the Garden as Adam and Eve their "children."
 
+![](haroseettes.JPG)
+
 Spelled charoset, haroset, or charoses (Hebrew: חֲרֽוֹסֶת [ḥărōset])
 
 ###ha-nuke-ah, the Festival of Light
