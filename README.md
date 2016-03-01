@@ -5,6 +5,7 @@ the Holy Ghost, and with fire.
 Matthew 3:11 & ((ish))
 
 ```
+You should probably contact me, before you and the rest of the world lose the light that I have to offer.  If something in the introduction turns you off, that's your problem.  I suggest you turn the page whenever that happens.  This event will never happen again.  This is the Second Coming.
 
 ##The Revelation of Adam
 The Holy Bible is a [prophesy whose details predictively chronicle the *second coming* of Christ.  It was once a map to the future, but it has become our present.  Specifically the story of the Exodus and the Gospels of Christ are abstract representations of the post 9/11 world, and my life.](behold,_the_burning_bush.html)  These stories are filled with vibrant allusions to modern persons, places and ideas. 
