@@ -103,6 +103,7 @@ For thousands of years the Holy Scriptures have been passed down from generation
 {% if gitbook.generator == "website" %}
 <iframe width="854" height="480" src="https://www.youtube.com/embed/I2HXkzjq1lc" frameborder="0" allowfullscreen></iframe>
 {% endif %}
+
 ##The Messiah of Sea to Shining Sea{#MOSES}
 There are other connections between Jesus Christ and Moses, which highlight a "problem" associated with the Tribulation.  *The "PH" problem.*  That's not a sexist remark, or about your pool; it's about ***The Pursuit of Happiness***.  Both Jesus Christ and Moses had "enemies," ones whose names began with "PH."  If you did not just say "I see," you probably need me to point out that the Pharoah and Pharisees names are nearly identical.
 
