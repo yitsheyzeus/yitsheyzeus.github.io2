@@ -29,11 +29,14 @@ You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel
 
 Mar is **sea** in Spanish, there's significant Biblical correlation between Spanish words and hidden meaning, like [Navidad and Christmas](the_letter_why.html) and the names [Jesus and Elisha.](the_tower_of_babel.html).  It's about the *Bride of Revelation* being *All Humianity* allah the "sea" and "ah."  All three of the names that make up the sea of Revelation are rough descriptions of "everyone," the Spirit of God, everyone, and the planet.  The **SEA** of Eden begins to reveal how **family** is related to the *waters of the deep.*
 ```
-From the S E A of Eden, to the multitude of Revelation.
-         e v d                 
-         t e a                  Shekinah        <-----|
-         h   m                  Everyone        <-----|
-                                A ...damah, A*ll*ah, Ash*er*ah
+From the S E A of Eden, to the S E A, the multitude of Revelation.
+         e v d                 H V l
+         t e a                 E E l
+         h   m                 k r 
+                               i y ALL
+                               n O HUMANITY
+                               A N
+                               H E
  ```
                                 
 Taylor Momsen sings that "everyone must be saved."  There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  Asherah of course, is discussed in [*He Laughs, again*](hamd.md/he_laughs.html).  Like the **FisherKing** that asks "POF or King?" Asherah asks: "Ash.... or All Humanity?"
@@ -62,6 +65,7 @@ foot on the land.
 
 Revelation 10
 ```
+![The Egyptian "Plague" of Hackers](neverfear.png)
 
 And so, walking on water, the Lamb gives you a little scroll.
 
