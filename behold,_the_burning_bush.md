@@ -11,6 +11,10 @@ The Iron Rod of Christ and the Rod of Aaron are promised Doors from Earth to Hea
 I saw an angel coming down from heaven, with a great chain in his hand. 9/11. I returned, and saw under the son... that time and chance happeneth to them all.*   All of these Biblical quotes are the Sign of the Son, imagery of flying things and terrible anger.  Realizing that they are all about 9/11, and the Bible proves as much through none other than President Bush.  Out his own mouth, just like the story of Exodus--word's of God coming out of the fire.
 
 The sign of the Son combines this amazing revelation, that the Bible presciently alludes to the attack, with a huge number of references to constructs of our modern culture.  Oracle Corporation, *unix commands*, and elements of the periodic table are just a few of the science and technology references that are directly made by this "sign."  It's impossible for them to be in the Bible, without time travel, truly knowing all about our culture way back then.  Still, they exist, and their inclusion in these ancient scriptures is for a reason.  The Bible itself is designed to prove that time travel technology exists.
+{% if gitbook.generator == "ebook" %}
+{% else %}
+<iframe width="854" height="480" src="https://www.youtube.com/embed/PFQVCmbDgl4" frameborder="0" allowfullscreen></iframe>
+{% endif %}
 
 ###Ecclesiastes 9:11
 
