@@ -4,6 +4,10 @@ God is superstitious, he doesn't like the number 9, or the word end.  [Asherah h
 
 Saving the universe is the purpose of religion, and God's plan is to make angels of us.  Angels [born in the fire of Hell.](behold,_the_burning_bush.html)  This Hell is a storm of time travel that has caused us to relive our lives... at least 2 times, but probably many more, if you know me.
 
+{% if gitbook.generator == "website" %}
+<iframe width="854" height="480" src="https://www.youtube.com/embed/TO9OsSazQ0s" frameborder="0" allowfullscreen></iframe>
+{% endif %}
+
 ##I am the living vine.
 Vine and tree references, like *The Tree of Knowledge* and *The Tree of Life* are references to a computer metaphor.  A decision tree, and this is what I believe the *multiverse* that quantum theorists are trying to explain is.  Not a [construct of nature, but a design](./outside_of_heaven.html) to save the Universe, a tool built to create branches in time, based on things we do.  
 
