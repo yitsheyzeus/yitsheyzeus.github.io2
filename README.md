@@ -11,6 +11,8 @@ There is so much bright light gracing these pages that it should show you very c
 
 Through idioms, music, and movies God reveals his influence over the course of history and our culture.  With the rituals and names of religion he highlights true precognition of the events of today and foreknowledge of the development of language thousands of years before the development of English.  With the story of Exodus he shows us his intent: to lead us from the Darkness.
 
+With the Second Coming, he changes the world forever.  
+
 ##The Revelation of Adam
 The Holy Bible is a [prophesy whose details predictively chronicle the *second coming* of Christ.  It was once a map to the future, but it has become our present.  Specifically the story of the Exodus and the Gospels of Christ are abstract representations of the post 9/11 world, and my life.](behold,_the_burning_bush.html)  These stories are filled with vibrant allusions to modern persons, places and ideas. 
 
