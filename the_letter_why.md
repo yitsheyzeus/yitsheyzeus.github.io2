@@ -51,6 +51,11 @@ a name of God, transliterated by scholars from the Tetragrammaton and commonly r
 
 ###Welcome to Adamah.  [That's Earth in Hebrew.](https://adjkjc.gitbooks.io/time-and-chance/content/the_tower_of_babel.html)
 
+{% if gitbook.generator == "website" %}
+<iframe width="854" height="480" src="https://www.youtube.com/embed/Sws3MZJIv9c" frameborder="0" allowfullscreen></iframe>
+{% endif %}
+
+
 ##Dr. Who?
 Exactly.  "And like that, he was gone."  (That's a Usual Suspects reference, if you don't know it, watch it.)
 
