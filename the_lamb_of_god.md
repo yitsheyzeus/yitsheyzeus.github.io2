@@ -67,7 +67,12 @@ This mind control was overtly shown to me, I was made to literally walk around l
 
 Nero's fiddling... with our minds is well portrayed in a favorite poem of mine, one that I recited in high school.  In *The Touch of the Master's Hand* God is the auctioneer, who changes the worth of the violin he is selling, a metaphor for the salvation of our civilization coming from the Hand of God.
 
-###He played a melody as pure and sweet as a carolling angel sings.
+###He played a melody as pure and sweet as a caroling angel sings.
+
+{% if gitbook.generator == "website" %}
+<iframe width="854" height="480" src="https://www.youtube.com/embed/cXCA5-KHknY" frameborder="0" allowfullscreen></iframe>
+{% endif %}
+
 
 The proof of mind control that is the fire burning below Nero's feet is lost on us today.  It is designed to be exposed, so that we will never again be slaves to hidden technology.  This is the reason that the same hidden story is being highlighted and sung about by so many unknowing prophets.  
 
