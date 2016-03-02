@@ -1,5 +1,9 @@
 # The Letter Why
+{% if gitbook.generator == "website" %}
+<iframe width="854" height="480" src="https://www.youtube.com/embed/tXc4jgUJEko" frameborder="0" allowfullscreen></iframe>
+{% else %}
 ![](FLUXXCAPIMG_2422.jpg)
+{% endif %}
 
 The things in this chapter are what I call "superficial evidence," they are names and words that are probably boring; but yet confirm to me that I have been pre-selected, destined from before my birth to be the messiah.  A number of the examples on this page fulfill Biblical prophesy, and are literal teaching of Christ spoken about in the New Testament.  My twists are the intended original intent, which serves as a pointer to these examples which have real useful meaning, as well as serving as more proof that our languages are designed in order to reveal this truth now.
 
