@@ -267,7 +267,7 @@ It is no mistake that Amoz and Samson tie the discovery of the messiah to a worl
 <iframe width="854" height="480" src="https://www.youtube.com/embed/TO9OsSazQ0s" frameborder="0" allowfullscreen></iframe>
 {% endif %}
 
-###Yankee Doodle, nephew of *Samael*
+###Yankee Doodle, nephew of *Samael* & Yosemite SAM
 
 #This is the Dawning of the Age of Mars
 He-man, Darth Vader, Plague and Cat Stevens "power" growing in *Hair.*  Biblically links to Samson and Jesus, long hair is pervasive in cartoons and movies that are topically linking Christ to me.  Yitshak ties to Plague, of Hackers, and Exodus (looks like me).  Vader to "Lord Jesus" the "ad" and Adonai, Lord in Hebrew. The Letter He, is the Fifth in Hebrew, and an abbreviation for the name of God; also Prince Adam when he's "Clark Kent."  Kal-El and Jor-El part of a naming scheme decidedly Biblical, 
