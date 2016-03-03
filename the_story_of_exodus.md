@@ -38,3 +38,6 @@ Back then it was the fact that hidden metaphor in the names of people like ADAM 
 
 No sooner was the man and his name screaming that **A**fter **D**ark it is **A.M.** that **eve**rything changed from the dark first evening to "Adam and **Eve**ryone.  It's the beginning of the Holy Grail, a theme that pervades from Genesis to Revelation and shows us that the space-aged theme of the sea is not about voyaging into the abyss, but rather into seeing that the light of the Universe is here... in our sea.  [The multitude of Revelation.](holy_water,_sang_rael.html)  Hidden in not just names, but also in the idioms of our time is the key to understanding: *a blessing in disguise* the First Plague of Egypt turns water to blood--*thicker than water*--and the small trinity of a sea in Eden to the large family of Jesus Christ.  The Blood of the Grail.  *From the Ends of the Earth* the chalice that holds that blood turns from Earth to Heart; simply by moving an "h" from the end to the beginning.  For Heaven, Hebrew, Saturn's sign, and for Home--these are my 4H's that show us that *home is where the heart is*.
 
+##The Story of Exodus
+
+
