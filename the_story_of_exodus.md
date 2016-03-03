@@ -42,4 +42,4 @@ Through idioms we see that our culture and this story are intertwined, that His 
 
 #The Story of Exodus
 
-As we've seen in the light of the 
+As we've seen in the light of the name Exodus, reading names (and now books) backwards is a huge hidden theme in the Revelation that is before you.  From Exodus being "sudo xe" and thus *let there be light*, we find a key that links the Rod of Christ to The Doors of Jim Morrison, and the key story that links the Salt of the Earth of Matthew 5:13 to the story of Lot and his Wife... which might imply that the Rod of Christ is God's Anima--linked to the music of our age through TOOL.  Soon I will show you the meaning of J, N, and the little o that graces the name of Nero--our historical counterpart for the fiddler who weaves this story into music for us to hear, and see.
