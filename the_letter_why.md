@@ -253,6 +253,8 @@ Perhaps not clear, Abraham is *Spanglishrew* for "Open the M," and this M opens 
 
 God changed Abram's name to Abraham upon the Covenant, which took place after the near sacrifice of Isaac on an altar of Fire.  This altar is a clear parallel of the Cross of Jesus Christ, and the Ha links directly to the English meaning of the name Issac: *he laughs.*
 
+If history could speak, it is screaming for you to correlate the Apple of Isaac "New to N" to Eden, and see why Adam and ["AbrahaN" are supremely related to our time line, to a number of Holy Names, and to my initials.](im_single.html)
+
 ###Samson
 
 ###Isaiah son of Am**oz**
