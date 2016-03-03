@@ -72,3 +72,8 @@ True *Biblical Light* is what graces the pages of Holy Scripture, it is a truth 
 ##Ender's Game, the Ewok, and Pan's Labrynth
 >“I am the cat with nine lives. You will not prevail against me.” -Nancy Farmer, The Lord of Opium
 
+##The Iron Rod of Mars
+
+![](terraforming_mars_by_william_black-d6hnk8q.jpg)
+
+![](tunnel_boring_machine_3.jpg)
