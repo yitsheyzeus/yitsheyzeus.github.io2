@@ -55,3 +55,5 @@ The story of Exodus is intended to be read both forwards and backwards, and with
 In a world where the Promised Land is both within and without--ours because we are the heart of the Ark of the Covenant, and there too because it is through time travel and science that we find ourselves in a place where time is not as big of an issue as it had once been, and *infinite power* comes not from seeing that there is an ancient Promised Land shortly after the "Big Bang," a mere 378,000 years, when power was literally *in the air.*  
 
 ![](cosmic-microwave-background-cmb-130321d-02.jpg)
+
+This is my divine inspiration, the coincidental discovery and publication of these world-changing pieces of knowledge that coincided perfectly with a story that I was being told.  One which linked Exodus to today, the thralls of modern science to *science fiction* epic that I was practically living out.  
