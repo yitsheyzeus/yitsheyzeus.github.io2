@@ -263,6 +263,10 @@ The magic of the Bible comes alive with this one, with Amoz.  From the "I AM" of
 
 It is no mistake that Amoz and Samson tie the discovery of the messiah to a world that has damned it's "sonlight" to come from a hardship in the criminal justice system.  It is light coming from two letters, yet again, and these two are being highlighted so strongly in the *Wizard* and *prison* as related to the first three letters of Isaiah's name and the [prelude to the Trial of Jesus Christ that is central to the Revelation before you.](the_lamb_of_god.html)  Within these hidden words, beginning with "I," "AM," and "IS" we clearly see a relationship between the Lamb of God, Is*lam* and I*ran*.  It's so obvious to me, the runner, that I find it hard to see how much skepticism I feel... in this story that is certain to be mired in controversy.  Yet we are here, and all around us he has written down the names of the things in Eden to ensure that one day soon the truth will be light.
 
+{% if gitbook.generator == "website" %}
+<iframe width="854" height="480" src="https://www.youtube.com/embed/TO9OsSazQ0s" frameborder="0" allowfullscreen></iframe>
+{% endif %}
+
 ###Yankee Doodle, nephew of *Samael*
 
 #This is the Dawning of the Age of Mars
