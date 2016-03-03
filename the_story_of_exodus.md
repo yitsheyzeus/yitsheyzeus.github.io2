@@ -57,3 +57,5 @@ In a world where the Promised Land is both within and without--ours because we a
 ![](cosmic-microwave-background-cmb-130321d-02.jpg)
 
 This is my divine inspiration, the coincidental discovery and publication of these world-changing pieces of knowledge that coincided perfectly with a story that I was being told.  One which linked Exodus to today, the thralls of modern science to *science fiction* epic that I was practically living out.  
+
+Like *water*, **Light** has a dual meaning in the mythology of this story, and the *Light of Osiris* was a very clear promise that was given to both me and Jacob--the name that was "given" to the speaker of the words "Expect the Unexpected."  It was a promise of infinite power, one that was to be given to the world in order to fulfill the dream of religion, to ensure the survival of life and the continued evolution of our civilization.  
