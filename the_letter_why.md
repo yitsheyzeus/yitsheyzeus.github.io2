@@ -255,6 +255,8 @@ God changed Abram's name to Abraham upon the Covenant, which took place after th
 
 If history could speak, it is screaming for you to correlate the Apple of Isaac "New to N" to Eden, and see why Adam and ["AbrahaN" are supremely related to our time line, to a number of Holy Names, and to my initials.](im_single.html)  It's the gravity of the *original sin* that I'd like to call into question.
 
+These same two letter, "AC" are all that separates Jacob (son of Isaac) from Job, another "J" who suffered at the hands of God and Satan in a tribulation that might not be the oldest story in the Bible.  *Old as Aramaic* we say, and yet this story has so much affinity to the modern day crucifixion that it seems divine humor for it to be thought of as the first book.
+
 ###Samson, son of Manoah
 Oh, ahh.. Samson's story in the book of Judges ties so well to the cross of Isaac that you would be remiss not to believe that we are living in interesting times.  In a courtroom battle that is euphemized so well in that book, the "Son of Manoah" links very clearly to the justice of Uncle Sam, and a Messianic story destined to change just about everything we think about social justice and reform.  Our society cripples itself with retribution and lack of regard for the downtrodden, and God highlights it so clearly with an *eye for an eye* that I shouldn't have to tell a story about macrocosmically expanding our lack of justice and rehabilitation to a world that has clearly blinded itself, at least, according to the *all seeing eye*.
 
