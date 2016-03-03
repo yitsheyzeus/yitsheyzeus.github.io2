@@ -76,4 +76,4 @@ True *Biblical Light* is what graces the pages of Holy Scripture, it is a truth 
 
 ![](terraforming_mars_by_william_black-d6hnk8q.jpg)
 
-![](tunnel_boring_machine_3.jpg)
+![](tunnel_boring_machine_3.jpg) 
