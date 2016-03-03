@@ -2,7 +2,7 @@
 
 * [Introduction](README.md)
 * [Ha'esh and Ai](chapter1.md)
-* [The Story of Exodus](the_story_of_exodus.md)
+* [Expect the Unexpected](the_story_of_exodus.md)
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Music Saves All Souls](music_saves_all_souls.md)
 * [The Tower of Babel](the_tower_of_babel.md)
