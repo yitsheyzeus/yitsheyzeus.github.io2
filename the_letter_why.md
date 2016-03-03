@@ -253,9 +253,10 @@ Perhaps not clear, Abraham is *Spanglishrew* for "Open the M," and this M opens 
 
 God changed Abram's name to Abraham upon the Covenant, which took place after the near sacrifice of Isaac on an altar of Fire.  This altar is a clear parallel of the Cross of Jesus Christ, and the Ha links directly to the English meaning of the name Issac: *he laughs.*
 
-If history could speak, it is screaming for you to correlate the Apple of Isaac "New to N" to Eden, and see why Adam and ["AbrahaN" are supremely related to our time line, to a number of Holy Names, and to my initials.](im_single.html)  It's the gravity of the *original sin* I'd like to call into question.
+If history could speak, it is screaming for you to correlate the Apple of Isaac "New to N" to Eden, and see why Adam and ["AbrahaN" are supremely related to our time line, to a number of Holy Names, and to my initials.](im_single.html)  It's the gravity of the *original sin* that I'd like to call into question.
 
-###Samson
+###Samson, son of Manoah
+Oh, ahh.. Samson's story in the book of Judges ties so well to the cross of Isaac that you would be remiss not to believe that we are living in interesting times.  In a courtroom battle that is euphemized so well in that book, the "Son of Manoah" links very clearly to the justice of Uncle Sam, and a Messianic story destined to change just about everything we think about social justice and reform.  Our society cripples itself with retribution and lack of regard for the downtrodden, and God highlights it so clearly with an *eye for an eye* that I shouldn't have to tell a story about macrocosmically expanding our lack of justice and rehabilitation to a world that has clearly blinded itself, at least, according to the *all seeing eye*.
 
 ###Isaiah son of Am**oz**
 
