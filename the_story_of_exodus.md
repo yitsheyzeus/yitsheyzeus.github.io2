@@ -70,3 +70,4 @@ Like *water*, **Light** has a dual meaning in the mythology of this story, and t
 True *Biblical Light* is what graces the pages of Holy Scripture, it is a truth that changes with the throes of time and chance, to become more clear and more useful as our civilization evolves.  Stories that once guided the development of society now become a path to the future--as we begin to see that the original purpose of this Light is to ensure that we are not left in the dark.  
 
 ##Ender's Game, the Ewok, and Pan's Labrynth
+>“I am the cat with nine lives. You will not prevail against me.” -Nancy Farmer, The Lord of Opium
