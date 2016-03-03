@@ -40,6 +40,6 @@ No sooner was the man and his name screaming that **A**fter **D**ark it is **A.M
 
 Through idioms we see that our culture and this story are intertwined, that His intent is to show us that we are created, and that the plan of Salvation certainly includes not only verifiable but awe striking proof that we are journeying together into the Promised Land of Joshua.
 
-##The Story of Exodus
+#The Story of Exodus
 
-
+As we've seen in the light of the 
