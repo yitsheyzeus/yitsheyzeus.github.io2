@@ -243,11 +243,15 @@ There is a recurring theme in the characters of the Bible that I have a large af
 There is a confluence between successive lives of Adam in the Holy Bible which shows a clear and defining lack of Earthly parents.  The Adam who Fell in Eden had none, being created from the dust of Adamah by God alone.  It carries through to successive versions of the story of Christ, not the least of which is the virgin born Christ of the New Testament.
 
 ###Jesus, son of *only* Mary (and God)
+Matthew 1:19 highlights Joseph's description as "only a man" in italics as I read.  As the J's are all euphemisms for the Christ, try very hard to see that this is ironic sarcasm, explaining that those that think the messenger before you is "only a man" fail to understand the change that is wrought by the Second Coming.  Only a man, indeed, what is about to take place is world changing, and this man alone in the world is anything but.  The path of a lack of parenthood is continued very clearly in this story, which tells us that Jesus had no *biological father*.  
 
 ###Joshua, son of (a) *Nun*
 *Son of a gun*, is that a reference to the *Virgin* Mother in a convent, or does it actually mean "none?"  I'm pretty sure both the Nun thing and the Virgin thing are "digs" on belief in self-perfection; or perhaps on being "goodie-two-shoes."  *Holier than I,* if you will.  I'll have you know, none of the real life candidates for *Mary* are even close to as perfect as they think they are--not Melissa, not Nanna, and not *Jan*et.  In *Jan*uary, I'll tell you R.Y.
 
 ###Isaac, son of Abraham
+Perhaps not clear, Abraham is *Spanglishrew* for "Open the M," and this M opens to reveal that it is comprised of the "AC" that grace the end of America and the name of Isaac.  Isa is the Muslim name for Christ, and this father/son relationship that links Isaac and Abraham together through the ["Ha" of Horus](hamd.md/he_laughs.html) is one of the most important series of two letter clues that the true geneology of Adam has to offer.  
+
+God changed Abram's name to Abraham upon the Covenant, which took place after the near sacrifice of Isaac on an altar of Fire.  This altar is a clear parallel of the Cross of Jesus Christ, and the Ha links directly to the English meaning of the name Issac: *he laughs.*
 
 ###Samson
 
