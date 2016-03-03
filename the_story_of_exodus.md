@@ -6,8 +6,9 @@ It's almost as if I've experienced two complete phases of Revelation, one which 
 >Astronomers have discovered direct evidence of water on the dwarf planet Ceres in the form of vapor plumes erupting into space, possibly from volcano-like ice geysers on its surface.
 >
 >Using European Space Agency's Herschel Space Observatory, scientists detected water vapor escaping from two regions on Ceres, a dwarf planet that is also the largest asteroid in the solar system. The water is likely erupting from icy volcanoes or sublimation of ice into clouds of vapor.
-
+>
 >"This is the first clear-cut detection of water on Ceres and in the asteroid belt in general," said Michael Küppers of the European Space Agency, Villanueva de la Cañada, Spain, leader of the study detailed today (Jan. 22) in the journal Nature.
+>>[Space.com 1/22/2014](http://www.space.com/24366-dwarf-planet-ceres-water-ice-volcanoes.html)
 
 ```
 oh desert speak to my heart
