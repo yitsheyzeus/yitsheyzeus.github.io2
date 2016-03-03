@@ -22,4 +22,8 @@ these streets below the moon
 Live, Run to the Water
 ```
 
+These words were literally coming to me from Jesus Christ, by way of Eddie Kowalczyk, and I expected them to come true.  They were a warning and a consolation at the same time; telling us not to bring an army to fight the vastness of space, but rather to focus on what it was that we needed to to ensure the survival of life.  Fighting has mired our history so much, I fully expected Him to be waiting for us at our first interstellar jump with an Armada from either the far away Atlantis of Stargate SG-1 or maybe the Last Starfighter's Alpha Centauri.  He would be protecting us, of course; but also from something we probably overlook too often, that sometimes it's our own nature that we must be protected from.  We are so headstrong, so sure that we are right and deserving; it would be just like us to build a space army of sticks and stones to embarrass ourselves at the first encounter--and maybe the last--we'd have with some life more intelligent and farther along in this vacation we call civilization.
+
+
+
 It was 2013, and I had just moved to Bowling Green, Kentucky with my ex-wife and very young son.  
